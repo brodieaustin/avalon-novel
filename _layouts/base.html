@@ -1,0 +1,88 @@
+<!DOCTYPE HTML>
+<html lang="en">
+<head>
+  <meta charset="utf-8">
+  <title>{{ site.title }}</title>
+  <meta http-equiv="X-UA-Compatible" content="IE=edge,chrome=1">
+  <meta name="viewport" content="width=device-width">
+  <link href="https://fonts.googleapis.com/css?family=Merriweather:400,900&display=swap" rel="stylesheet">
+  <style>
+    *{
+      box-sizing: border-box;
+    }
+
+    body{
+      margin: 0;
+      padding: 0;
+      font-family: 'Merriweather', serif;
+      line-height: 1.6;
+    }
+
+    header{
+      padding: 1rem;
+      background-color: #333;
+      color: #fff;
+    }
+
+    header a{
+      color: #fff;
+      font-size: .875rem;
+      text-decoration: none;
+      text-transform: uppercase;
+      letter-spacing: 1px;
+    }
+
+    h1{
+      margin-top: 6rem;
+      margin-bottom: 3rem;
+      font-weight: 900;
+      text-align: center;
+    }
+
+    .novel{
+      max-width: 32rem;
+      margin: auto;
+      padding: 1rem;
+    }
+    .toc{
+      list-style: none;
+      margin: 0 0 2rem 0;
+      padding: 0 0 2rem 0;
+      border-bottom: 1px solid #ccc;
+    }
+
+    .toc li{
+      padding: 0;
+    }
+
+  </style>
+</head>
+<body>
+  <header>
+    <a href="" class="novel-title">{{ site.title }}</a>
+  </header>
+  <main>
+    <article class="novel">
+      <h3>Contents</h3>
+      <ul class="toc"></ul>
+      {{ content }}
+    </article>
+  </main>
+  <script>
+    (function(){
+      var toc = document.querySelector('.toc');
+      var headings = document.querySelectorAll('h1');
+
+      for (i = 0; i < headings.length; i++){
+        var heading = headings[i];
+        var item_link = document.createElement('a');
+        var item = document.createElement('li');
+
+        item_link.href = '#' + heading.id;
+        item_link.innerText = heading.innerText;
+        item.appendChild(item_link);
+        toc.appendChild(item);
+      }
+    })();
+  </script>
+</body>
