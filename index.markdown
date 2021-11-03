@@ -156,6 +156,44 @@ When Avalon told her stories, new worlds opened up to the princess, worlds she c
 
 Assuming they did. Assuming she wanted them. That's what being with Avalon impressed upon her the most. There was more in the world than the household she lived in and all of the constraints that came along with that. She couldn't imagine giving up being a royal, of course, perhaps the most important royal family of them all. Her father was the Divine King, after all.
 
-But even now as she rocked along on some winding but unbending route to the eastern woods, she couldn't help but let her imagination wander among those lands, those places, those people that seemed such more than this, whatever this was at the moment.
+But even now as she rocked along on some winding but unbending route to the eastern woods, she couldn't help but let her imagination wander among those lands, those places, those people that seemed much more than this, whatever this was at the moment.
 
 ***
+
+"Why don't you go exploring?" her mother said to her, as if she was still a little girl in plaited braids, full of dimples and cute sayings. Her mother was busy overseeing the servants setting up for lunch. The forestman and warden were busy trundling the heavy lunch table from spot to spot, trying to follow her mother's wayward gestures.
+
+The princess sighed and decided to set off into the woods after all. She followed the trickling sound of the creek that flowed through the woods, half remembering that a rustic wooden bridge crossed the creek at some point.
+
+The flood and flow of instructions from the picnic spot stared to give way to rustle of creatures in the forest bed, to bids chirping in the tress above.
+
+"You actually like the woods," she said out loud to herself, a habit she associated with her younger self. She had put that habit away recently now that she was properly older and talking to yourself was not proper.
+
+She replied silently: Yes but that was before and this is now.
+
+Regardless, she felt a flutter of excitement upon seeing the bridge, remembering when crossing that bridge meant crossing to a new world, a new land. Maybe one of the land's from Avalon's stories. There had been a period of time when Avalon's stories did come to life around her in places like that, places that seemed different from some other place.
+
+She stopped in the middle of the bridge, crouching down to watch the rippling current pass under her. Small fish darted along the sandy bottom that glistened in the sunlight. She saw a turtle making its way across the creek, opposite of the direction she was heading in.
+
+Pausing, she studied its slow, persistent motions, watched it kick and glide its way across the creek's current. It didn't move with great urgency, but it made its way.
+
+Once the turtle disappeared in the brush lining the creek, the princess continued across to the other side. When her feet touched the ground again, she suddenly remembered a grove of old trees where she would spent hours as a little girl. She wondered if she could remember where it was.
+
+Up to this point, she had been following a very rough narrow trail, probably made by the woodsman or maybe people long before them who had wandered these woods. She knew from Avalon that these woods weren't always part of the estate. But those times seemed as far removed as the far away worlds in Avalon's stories.
+
+The grove she remembered wasn't on the trail. She thought she needed to strike off to the left at some point. As she walked, she remembered a series of mossy boulders that had been the marker for her to turn. There were the rocks just up ahead.
+
+Even now she could picture herself walking into deepest parts of the forest, the tree cover getting thicker, the world feeling very far away. But something was different. The way up ahead seemed much lighter than before. Up ahead and to the right, she realized that a road had been cut into the woods.
+
+When she reached the road, she stopped and stared down the ragged, turning path it made. She couldn't tell exactly where it went. But it cut in the opposite direction too, towards the grove. She turned and followed the road.
+
+The road was littered with splinted and split wood. Much of it was still relatively bright and fresh looking. "This road is still new," she said out loud.
+
+As she reached the road's terminal point, she gasped. She gasped because she was walking into a clearing, a clearing that she had never seen before now. This clearing wasn't a pleasant meadow full of weedy grasses and grazing animals. It was barren and stumpy, littered with the remnants of the trees that had been chopped down and taken away.
+
+"They've cut down the trees!" she cried out, out loud again. She replied in her mind: Of course they did. Where do you think they get wood for furniture and other things in the world?
+
+She knew the counterpoint she raised was a reasonable one, but the realization hurt nonetheless. Seeing these razed trees just added to the corded up frustration she was already carrying today. She dropped to her knees and started to sob, letting the angry, frustrated tears flow freely.
+
+***
+
+She cried herself dry, and just knelt in the clearing, holding her face in her hands until a voice sounded out, "Why are you crying? Are you okay?"
