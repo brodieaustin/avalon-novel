@@ -12,7 +12,7 @@ The princess turned, leaving the little hurt caused by the door behind. She pivo
 
 The chambermaid, clutching the princess' daytime undergarments, trying desperately to get her dressed so she could move on to her other morning chores, took a step back, took several in fact, catching her foot on the base of the clawed dressing table. "No, I promise you. This isn't me. I delivered the house mistress your request. I swear."
 
-Now circling around a worn spot in the layered carpets in her chambers, the princess fumed, "No you didn't. You're a sneaking and conniving thing." She paused, "And you're not good at your job. I know. I saw when you attended Avalon. I saw your little mistakes then, and I see them now. There's nothing left to do but..." The princess made for a lattice-work grill at the end of a pipe extending from the stone wall.
+Now circling around a worn spot in the layered carpets in her chambers, the princess fumed, "No you didn't. You're a sneaking and conniving thing." She paused, "And you're not good at your job. I know. I saw when you attended Avalon. I saw your little mistakes then, and I see them now. There's nothing left to do but..." The princess made for a lattice-work grill at the end of a pipe extending from the wall.
 
 The chambermaid dashed towards the princess, seized her arm without realizing what she was doing, "Please no..."
 
@@ -41,3 +41,121 @@ The chambermaid curtsied and said in a hushed voice, "I'm truly sorry princess. 
 "Of course. As soon as we're done I will tell the house mistress."
 
 "Good, then we have an understanding. Please proceed with my morning."
+
+As the maid dressed her, the princess wished she had not scolded her the way she had. Normally her new maid was efficient, but chatty at same time. The princess enjoyed hearing about the gossip among the servants, even if she pretended otherwise.
+
+Now the maid's efficiency felt forced, and her silence deliberate. But the princess let her finish her morning preparations and curstsey her way out of the princess's room.
+
+As she normally did, the princess remained at her dressing table brushing out her long dark hair, until she was called down for breakfast. Normally one of the second or third tier maids would lightly knock on her door and whisper, "My lord and lady are ready for you, your highness."
+
+The princess nearly dropped her brush when, instead of a light tap, there was a sharp rap on the door and it opened. The house mistress came into her room. She stopped, though, once inside the room, as was the custom and waited for the princess to acknowledge her.
+
+The princess brushed her hair several more times, before turning in her chair to acknowledge that the house mistress, one of her mother's favorite servants, had entered her chambers.
+
+The house mistress tilted her neck just enough to avoid breaching protocol, but didn't hide the brusque tension in the gesture.
+
+Finally impatient with the little game they were playing, the princess said curtly, "Yes, what is it? Breakfast time again?"
+
+"Yes your highness, but not just that. Your maid told me..."
+
+"I knew she would go squealing to you..."
+
+"I assure you there was no squealing involved. I simply wanted to inform you that I received your message about Avalon."
+
+"Fine, then I expect to see her as soon as it is possible."
+
+"Convenient, your highness."
+
+"Convenient? Convenient for who?"
+
+"Convenient for the priests and for Avalon."
+
+"Priests!? What do they have to do with anything? I only ask for patience."
+
+"Princess, as you well know, they have to do with many things."
+
+The princess scrutinized the house mistress closely, looking her up and down. The woman seemed more imperious than usual. What was the reason?
+
+The princess stood and swept her way in her fine dress to the windows overlooking a cultivated garden outside the great house where she lived. "I don't understand all of this talk about convenience and patience."
+
+She could hear the wizened woman let out a barely detected sigh, "Yes, your highness, but I have orders that you are not to disturb Avalon until it is convenient, for her, as well as the priests."
+
+"And these orders came from?"
+
+"From my lady, your highness."
+
+The princess fumed, tightening her fingers into white knuckled knots, "Well that figures. There is only one solution for this, and that solution lies beyond one. I will take my leave for breakfast now."
+
+"As you wish, your highness." The house mistress retreated from her room, leaving the princess alone in her room with her anger and frustration.
+
+She stood at the window for several minutes, watching the gardeners pushing carts along the grounds, trimming hedges, picking weeds, and doing the hundreds of tasks that the King's, her father's house required, to maintain its stature as the finest and grandest house in the land.
+
+***
+
+Her mother and father sat at a long table in the great hall eating breakfast. Servants stood stiffly in the wings, waiting to attend to the King and Queen's needs.
+
+Her father looked up and nodded at her in acknowledgement then returned to reading from a despatch box of papers spread out around him. Her mother wiped her mouth carefully and motioned her to an empty seat.
+
+"Sit darling and eat your breakfast."
+
+She plodded into the room and plopped into the chair, wanting her dissatisfaction to register plainly. But the plodding and plopping barely registered with her father.
+
+Her mother arched and eyebrow and gave her father a meaningful look, but the King ignored her, preferring to grunt over whatever it was he reading at the moment.
+
+The princess ignored her mother's meaningful look and made room for the servants to place her breakfast before her. She knew that if she could engage her father, she could get the barriers keeping her from visiting Avalon to go away.
+
+"Father, must you read at the table."
+
+"Your father is busy right now and those papers must be returned. Now dear, let's talk about our day."
+
+"Our day? What day?"
+
+"Why this day, of course. Today. Why, what other day would I be referring to?"
+
+"How am I to know? Why does today deserve a day? That's my question."
+
+Her father peered up from his papers and said gruffly, "The priests are due to arrive today, you know that," and went back to her reading.
+
+The princess could see a look of exasperation pass across her mother's face, as if some agreed upon stratagem between her mother and father had broken down. If her mother had been the type, she imagined that she would have kicked the King under the table.
+
+Instead, she composed her self, took another sip of coffee. When her cup clinked back down, she looked at the princess again, as if ready for another volley, "Yes, as your father said, the priests are due to arrive. And, darling, it causes such a disturbance. I thought it would be pleasant to plan an outing. I already have the warden making preparations. I thought we could observe the deer in the eastern forest. The warden told me that there a new season of fawns have been born. What do you say?"
+
+The princess eyed her parents and decided to charge ahead, full frontal, with her demand, rather than retreat behind the pleasant plans that her mother was trying to distract her with. "I want to see Avalon. She's been gone for weeks now and I want to see her."
+
+"Out of the question," her father replied, in the voice he reserved for ministers and commanders, and sometimes his daughter.
+
+"But father..."
+
+"Dear, what your father means..."
+
+Her father, the King, put down his papers and replied, "What your father means is no. You are forbidden to see Avalon until you are told otherwise. Do you understand?" The princess slumped in her chair. "Do you understand?"
+
+"Yes, father."
+
+Her father's eyes brightened and he smiled at her mother, he bushy mustache crinkling around his mouth, "Good, then we have an understanding. No more talk of Avalon until otherwise noted."
+
+Her mother, following her father's example, smiled as well. "Good. Then about that outing..."
+
+***
+
+The east woods were at the very edge of the King's personal estate. Surely her mother had chosen that location on purpose. They would spend most of the day just traveling there and back.
+
+The princess was not in the mood to ride horses, much to her mother's disappointment. Her mother had met her out near the stables in her riding attire, seemingly bounding with energy. The princess had changed into traveling attire, but nothing that was appropriate to wear riding.
+
+Besides, even if she had been in the mood to ride, which truthfully she probably was, she wasn't going to satisfy her mother's sense of mission and duty to distract her today, but saddling up her favorite horse. She gave the chestnut horse a few gentle pats on his nose, before meeting her mother at the carriage.
+
+They sat out, a train of two carriages, on the rough roads to the east woods. Her mother's companion rode with them in one carriage. Two servants rode with their provisions in another. A forestman and the warden rode alongside the train on horseback.
+
+As they rocked and rattled over the roads, her mother chatted freely with her companion about all manner of things going on in the kingdom and the household. From time to time, her mother would lean across and pat the princess's arm, "Darling, cover your ears for this part," whenever the talk turned to some item of personal business that her mother deemed unsuitable for her.
+
+The princess would half-heartedly comply, but really her mind was far away. In fact, her mind was wandering through the stories that Avalon often told her when she visited her. She found herself in other lands, some arid and dry, others nothing more than small islands dotting an exanse of water.
+
+She could imagine the warriors that fought long dangerous battles in Avalon's stories. She could hear the whispers and intrigue inside the royal courts that always seemed more exciting and glamorous than the court she lived in.
+
+When Avalon told her stories, new worlds opened up to the princess, worlds she could hardly fathom, and assumed she would never see in person, at least not until the distant future when young father and mother had passed on their titles became hers.
+
+Assuming they did. Assuming she wanted them. That's what being with Avalon impressed upon her the most. There was more in the world than the household she lived in and all of the constraints that came along with that. She couldn't imagine giving up being a royal, of course, perhaps the most important royal family of them all. Her father was the Divine King, after all.
+
+But even now as she rocked along on some winding but unbending route to the eastern woods, she couldn't help but let her imagination wander among those lands, those places, those people that seemed such more than this, whatever this was at the moment.
+
+***
