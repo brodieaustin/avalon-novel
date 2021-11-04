@@ -197,3 +197,93 @@ She knew the counterpoint she raised was a reasonable one, but the realization h
 ***
 
 She cried herself dry, and just knelt in the clearing, holding her face in her hands until a voice sounded out, "Why are you crying? Are you okay?"
+
+She stood up and circled around, scanning the clearing of the voice that called out to her. She didn't see anyone and wondered if in her her current state she was hearing things.
+
+Then she heard a branch break and a figure stepped into the clearer. The figure was really nothing more than a child, a boy, younger than her by several years, wearing a thin robe. His head was shaved, but already covered in a scruffy stubble, and he held onto to a coarse sack slung over his shoulder.
+
+"Are you sure you're okay? I heard you crying."
+
+The princess wiped at her eyes and nose, self-conscious of the color that had probably spread over her cheeks. She could almost hear her mother saying, "That's an ugly look you've got. Cheer up, darling." "I'm fine. And even if I wasn't it isn't any of your business."
+
+The boy looked at her, turned his head and shrugged. "Okay, it sounded like you were pretty upset. I thought an animal was caught in a trap. I heard you crying from far away."
+
+"I said I'm fine. "Why are you here?"
+
+The boy scratched his head and then looked up at the sky, "Well that's a big a question. I don't know that I have time to answer that. Let me see..."
+
+She cut him off, "I would like to know who are. You're trespassing in the King's lands."
+
+"I am?" The boy looked around puzzled. "That's great!" In his enthusiasm he started off across the clearing, marching right past her.
+
+"Wait! Stop! Where are you going?"
+
+"I'm crossing the clearing. I got lost and wandered around for a long time, just hoping that I would end up where I was told to go. I really hope I'm not late."
+
+"Late for what?" she asked, but the boy had already disappeared into the wood. She took off after her, leaving behind the spectacle of her sadness and grief among the stubble and stumps in the clearing.
+
+She had to keep a quick pace to keep up with him. "Stop, please, stop."
+
+The boy stopped in his tracks and turned to her, finally allowing her to ask again, "Where are you going?
+
+"Well, I'm really not supposed to say."
+
+"So it's a secret."
+
+"Kind of, yes. I would say it's a secret."
+
+"What if I command you to tell me?"
+
+The boy erupted in a laugh that doubled him over, "Command me? That's the funniest thing I've ever heard. You can't command someone to tell a secret." Then the boy became reflective and stared at her intensely, "Can you?"
+
+"Well I am a princess, so I believe that I can, yes."
+
+"You're a princess? I've never met a real princess before." He started circling around her.
+
+"There aren't any princesses where you're from, wherever you're from?"
+
+"No, not that I'm aware. No princesses. There's are other people that give orders and tell others what to do, but no princesses."
+
+"So I take it you're not one of these, how did you put it, 'people who tell other people what to do'?"
+
+"Not really. Well, maybe... Not yet."
+
+"What kind of answer is that? I'm completely confused by you. You are the most confusing boy I've ever met."
+
+"I apologize. You're not the first person to say that to me."
+
+Now that he was closer to her, the princess how tightly his skin stretched over his round face. The sun had turned his skin darker than hers. His finger nails were unkempt and dirty. He had a look of being generally disorderly and not well cared for.
+
+And yet here he was wandering the world, wandering into her world, on the King's lands with some kind of secret purpose that he refused to share with her.
+
+The boy's stomach grumbled, "I need to keep walking, I don't want to be late."
+
+They started walking again, though the boy's pace was slower than before, "Are you hungry? Thirsty?" she asked him.
+
+"I'm starving but I don't have time to waste. I made a promise and I have to keep that promise."
+
+"But surely that promise should allow for tending to your basic needs. It doesn't sound like a very good promise that won't allow you to eat or sleep or other things to keep living. How will you fulfill your promise if you can't survive?"
+
+"That's a good point. I really am hungry. Do you have anything to eat?"
+
+"I don't..." the boy's face sank in disappointment, "But I know where to get food."
+
+"Is it far away?"
+
+"No it's very close."
+
+"How close?"
+
+"Just down this path. There is a another clearing, a proper clearing, along the creek."
+
+"And there is food there? What kind of place is this? Is this a magical forest?"
+
+"No silly, it's the King's Forest. The Eastern Forest to be exact. It's not magical, not in that way."
+
+"Then why is there food just laying around in the woods? It's not just a bunch of mushrooms is it? I can't stand mushrooms. That's all I've eaten for days. That and a few birds eggs."
+
+The princess tried to imagine this boy climbing up a tree to steal bird eggs. It was surprisingly easy to image this happening. "My mother is there, setting up a picnic. We brought too much food for just the two of it. You're welcome to some if it, if you'd like it."
+
+"I would love that. Let's walk faster. Faster walking, sooner eating. That's my motto."
+
+The princess assumed that it wasn't, in fact, his motto, but she smiled at the spirit anyway, and picked up her pace to try to stay abreast with the little boy who was barreling down the wooded path.
