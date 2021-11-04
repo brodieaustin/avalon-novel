@@ -287,3 +287,89 @@ The princess tried to imagine this boy climbing up a tree to steal bird eggs. It
 "I would love that. Let's walk faster. Faster walking, sooner eating. That's my motto."
 
 The princess assumed that it wasn't, in fact, his motto, but she smiled at the spirit anyway, and picked up her pace to try to stay abreast with the little boy who was barreling down the wooded path.
+
+***
+
+They startled her mother as they came crashing through the woods and entered the picnic spot. Her mother gasped, one of the servants nearly dropped a tray. The princess scanned the spot, only her mother, her mother's companion and the servant remained. The forestman and the warden were no longer part of the party.
+
+"Darling, where have you been, and who in the world do you have with you?"
+
+"I was wandering in the woods, just as you told me do." She decided not to share with her mother the news about the clearing at this time. "And this... This is..."
+
+"Oh, my name is Leif," the boy said.
+
+The princess nudged him and whispered, "Your majesty."
+
+"But I'm not a majesty," the boy replied at full volume, clearly confused by what she meant.
+
+"No, her, my mother. She's the queen. Say you're majesty and bow."
+
+The boy's eyes were even wider than when he had learned she was a princess, "You're a queen. Pleased to meet you you're majesty. I've never met a real life Queen before."
+
+"That's quite alright and to be expected," her mother replied. The princess was already annoyed at the tone that her mother was taking.
+
+"Leif has been traveling and is hungry. I invited him to picnic with us."
+
+"With us? Why I don't know dear."
+
+The princess rushed forward she sat on knees before her mother, in a pose of daughterly pleading. "Please mother, he seems very good natured and so very hungry. Think of the good it will do."
+
+It wasn't clear, even to her, what kind of good feeding the boy would do exactly, but she could see that her appeal to doing good in the world struck a chord with her mother. In a hushed tone her mother replied, "That is fine dear. We will make a place for him to eat, but over there."
+
+"No! Mother! He must eat with us."
+
+"I was hoping for a pleasant picnic with my daughter..."
+
+"Mother..."
+
+"Fine. Very well, I am much much too pliable a parent. Wouldn't you agree?" she asked her lady's companion, who nodded and replied with a terse, "Yes, my lady. But in bending, you model the true meaning of grace for your daughter."
+
+"I had not considered it in that light." her mother replied. The princess know that her mother always looked positively on opportunities to school her in the correct courtly manner. Her mother's upbringing, by her own telling, had been marked by many such lessons and had led to her consider rise in station and status. Presumably she carried the same expectations for her daughter, to marry well and advance the family's name.
+
+Her mother looked over her should at the boy and said, "Young man, my daughter says that you are hungry, please come join us for our picnic."
+
+"I would love to!" the boy dashed forward, stopped himself, bowed in a halting way, and added, "Your majesty."
+
+***
+
+The boy was either masterfully evasive or much too hungry to answer questions in a clear manner. As they ate on the spread out linens covering the grass by the creek, they chattered and discussed and gossiped, but he remained very quiet. Not exactly quiet, the princess observed. He made a terrible ruckus and mess when he ate, in part because every bit he took had an attending commentary.
+
+After several attempts to draw him out and reveal more details about himself, her mother finally gave up and turned her attention to her companion. The princess scooted herself closer to the boy so they could talk more privately without the adults overhearing what they were saying.
+
+"Do you want to know why I was crying?" she asked him.
+
+He took another bite of the cold roast quail and nodded his head, "Of course. I wouldn't have asked," he said through his bites of food.
+
+"It was the trees."
+
+"The trees?" he seemed puzzled. "I didn't see any trees."
+
+"That's my point. That's why I was crying. That used to be a grove of very special trees, at least to me when I was younger. Now they're gone."
+
+The boy had stopped eating, "What happened to them?"
+
+"Cut down, I assume. Didn't you see the tree stumps and broken branches everywhere?"
+
+"I was too distracted by your crying"
+
+"That's not a nice thing to say."
+
+"I didn't mean anything by it."
+
+She settled the play of anger that crossed into her voice, "It's fine. I didn't know that the trees had been cut down. I was surprised, and I...I don't know, I just started to cry."
+
+"Do you feel better?"
+
+"I guess. I don't know. I would feel better if the trees had not been cut down."
+
+The boy stared off past her at the creek as it bubbled along past them.
+
+"What are you look at?"
+
+"The creek. The water. Do you ever wonder if the water knows where it is going?"
+
+The princess turned to watch the water. "I've never really considered it."
+
+"It's carried along by something it doesn't really understand, but it keeps flowing, keeps being water either way."
+
+The princess looked at him, not quite sure what the say. Where had this observation come from? He seemed so careless, even carefree about the world around him. She had spent countless hours watching these waters pass her by and had never thought anything like that before. He was the strangest little boy she had ever met. 
