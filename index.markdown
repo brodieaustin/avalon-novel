@@ -372,4 +372,132 @@ The princess turned to watch the water. "I've never really considered it."
 
 "It's carried along by something it doesn't really understand, but it keeps flowing, keeps being water either way."
 
-The princess looked at him, not quite sure what the say. Where had this observation come from? He seemed so careless, even carefree about the world around him. She had spent countless hours watching these waters pass her by and had never thought anything like that before. He was the strangest little boy she had ever met. 
+The princess looked at him, not quite sure what the say. Where had this observation come from? He seemed so careless, even carefree about the world around him. She had spent countless hours watching these waters pass her by and had never thought anything like that before. He was the strangest little boy she had ever met.
+
+***
+
+<span id="update"></span>
+
+The picnic was over and her mother announced it was time to return to the house. Returning meant starting the early evening rituals that took place before dinner. The princess knew that she had nothing to look forward to but another round of washing and dressing, being handled by her maid, a long dinner with any guests or courtiers were still lingering about the house. Then even an even longer time spent in the parlor with her mother and the other ladies.
+
+She detested playing cards, and could only read for a brief time before the parlor's heat and the dull atmosphere put her to sleep. Then her mother would inevitably scold her for dozing off like a common laborer on the side of the road. "It is, and certainly will be, your duty to inject life and vitality into whatever situation you find yourself in. As the betters of so many, so many will look to you. You are a..."
+
+Spark, madam," her companion would invariably interject.
+
+"Yes, precisely. A spark. And those in your company are just cords of wood waiting to be lit by you. Don't you understand, dear?"
+
+Some version of this conversation had played out so many time, so many nights. The princess could immerse herself in the scene just sitting her in the rattling carriage. The only thing that pulled her out of this reverie of tedium was listening to the boy's excited conversations from the outside the carriage.
+
+Her mother refused to allow the boy the ride inside with them. "He is too common, darling. I simply cannot allow it."
+
+The princess knew that her mother would not budge. Sitting together with the boy in the rustic woods, eating their rustic picnic was one matter. She could only imagine the scene of horror her mother conjured as she imagined returning home, exiting the carriage, and meeting the servants, whose job was the greet them and ease their way inside, and their puzzled look.
+
+"He says he has somewhere to be and doesn't want to be late."
+
+"While I commend the young man for wanting to be punctual, I hardly see how it is our responsibility to aid him with managing his time."
+
+"Mother, you are taking this too literally."
+
+"Literal? Well what other way is there to take it. I am merely responding to the situation you have brought before me, the exact one, unless you mean something else."
+
+"No mother," she replied, huffing under her breath. She was already growing tired of debating this point with her mother.
+
+Her mother's companion leaned in again and whispered something in her mother's ear. "Yes, yes, I suppose I could allow that. Fine, seeing as how today's themes seem to be grace and charity, we can permit him to ride atop the carriage."
+
+She turned to tell the boy the good news, but suddenly couldn't find him. Maybe he had wandered off already. She paced around the picnic site, but found him sitting against a tree, starting to doze off.
+
+She nudged his shoulder, "My mother says you can come with us. It's okay?"
+
+The boy spoke through his yawn, "That's great news. Where are we going?"
+
+"Home. To my home. I thought you said, you had somewhere to be. I thought you had some important secret appointment."
+
+"Yes! and I can't be late. Does your carriage go fast?"
+
+"As fast as a one horse carriage can travel on the roads we have this far out. Not fast, but fast enough."
+
+"Well I can't complain. Besides I can hardly move a muscle after that lunch. I don't think I've ever seen that much food before."
+
+Judging by the boy's look and how he had devoured so much food, the princess believed him.
+
+"Darling, do close your sun shade," her asked. The princess realized that the late afternoon sun was starting to spread its bright light around them and through the carriage window on her side. She drew the shade, but not before realizing that they were close to home. They were crossing through one of the fields that was farmed. She could see lthe outlines of laborers in the fields swinging tools, stooping to pick and lift and drag.
+
+With the shade drawn, the carriage was much darker. She leaned her head against the side of the carriage, closing her eyes to ride out the bumps and jostles until their day's journey ended.
+
+Then she heard the driver call out and stern, "Whoa now." The carriage lurched to a stop.
+
+"What's going on? Why are we stopping?" her mother asked.
+
+The princess shrugged, having not more information that she did. She assumed that her mother was worried about bandits. She always fretted about bandits, even when they were traveling on their estate, on the King's lands.
+
+She turned her head to the side of the carriage with the open window and suddenly met with the boy's upside down face.
+
+"There are travelers up ahead, so we stopped."
+
+The boy's face disappeared before he could hear her mother whisper to her companion, "Must be the priests. They typically arrive in a procession."
+
+They sat still for several minutes in the middle of road. Suddenly she could hear horse hoofs pounded alongside then past them. The warden or forestman must be riding ahead. The travelers, even if they were priests, would have to give the right of way to the monarch's carriage, even though the monarch wasn't technically inside the carriage.
+
+She could hear the reins crack and the driver give a little "Hiyah" Then they started to move again. As they approached the travelers, she peeled back the edge of the curtain to get a better look at the people who had parted to let them pass.
+
+Much to her disappointment, though, she couldn't tell much about the figures lining the road. They were dressed in robes and many of them were hooded. They kept their heads low and faces out of site. Their robes were not uniform. Some were more or less plain than others. None were particularly lavish, nothing like her father's ceremonial robes.
+
+She could only guess that these figures were in fact priests, the priests who had disrupted her day and kept her from Avalon. She didn't really know though, because she had never been allowed to see the priests up close before. And it had only been recently that she understood that there was some kind of connection between the priests and AValon.
+
+The nature of that connection was a complete mystery to her. She never really considered why this connection was a myster. had someone forgot to tell her? Was she being lied to? Or had she just never stopped to think much about it.
+
+Crosing through this parted stream of travelers though but the question at the forefront of her thoughts. But those forming thoughts were jostled out of her when the carriage came to a sudden halt. She pitched back into the cushions behind her. Her mother and her mother's companion lurched forward.
+
+"Goodness, what is happening out there!?" her mother cried out.
+
+"We're being stopped, my lady," the driver replied.
+
+"Stopped by who?"
+
+The driver didn't reply, or if he did, his response was drowned out by another voice. A loud, stern, deep voice that also cried out, "What were you thinking!? Get down from the carriage at once!"
+
+The passengers in the carriage looked at each other, utterly confused. The princess pulled open the curtain, blinded momentarily by the surge of light that flooded in the interior. She poked her head out to see a tall man, one of the passengers, leading the boy away from the carriage, grabbing him by the collar, jerking along to the side of the road.
+
+Moments later someone was rapping at the carriage door. Her mother's companion opened the door. The man she saw was now in full view, filling the door's frame.
+
+He was severe and sharp angled. Old, but not weak like the old laborers and servants she was used to seeing. This man was old but vital. Regal, but not royal. She also noticed that his robes were much finer than many of the others she had seen. The also wore some kind of amulet close against his chest that peeked out from the tops of his clothes.
+
+"Your majesty, allow me to apologize."
+
+"High Priest, please explain yourself. I nearly suffered an injury for all of this jostling about on the road."
+
+"Again, I apolgoize your majesty. There has been a most unusual occurance, a deviation from our forms and codes. Please be assured that the trangresser will be punished."
+
+"Who are you talking about?" the princess interjected. Her mother was pleased.
+
+The man locked eyes with her. In that moment, she could feel that she had been studied, ascertained. He nodded his head at her, "Your highness. We have only met through the stories the King and Queen have shared. I regret that our first meeting had occur under these circumstances."
+
+"Please explain yourself," her mother cut in.
+
+"The boy, the boy on our carriage. Where did you find him?"
+
+"My daughter met him in the woods. He seemed like a troubled soul in need of nourishment and care. So we offered him our charity."
+
+"A noble instinct, of course." Her mother's companion nodded knowingly at this comment. "But that...that boy isn't just a boy."
+
+"Then who is he? Plesae do not leave us in the dreadful suspense," her mother replid.
+
+"Of course. He is the newest, and youngest member, of my order."
+
+The princess blurted out, "You mean he is a priest."
+
+"That is exactly what I mean your highness. A priest of only a month, and still new, very new, to our ways, but a priest nonetheless."
+
+Her mother chuckled, which seemed natural, if a little indecorous, "But he's just a boy!"
+
+"Yes, I am afraid so. But the priesthood is in just a state these days that we must take the candidates we are given. He was the only candidate put forth by his people. But he should have known that we are charged with a solemn duty to perform and are not mingle with people of the world until that duty is discharged. I hesitate to say it, but he was put everything our duty bounds us to do at risk."
+
+"Well, please know, that had I known, I...we would never have."
+
+"Of course not your Majesty, please understand that I do not blame you. But I'm afraid we are losing day, and losing time. We have many tasks to perform, as you well know. We must be on our way."
+
+"As must we, there are household matters to attend to."
+
+"Very well. I take my leave and promise that the boy will not be a concern of yours anymore."
+
+"I am pleased to hear it. Driver? Driver? Carry on and take us home, please."
