@@ -22,6 +22,7 @@
       padding: 1rem;
       background-color: #333;
       color: #fff;
+      overflow: hiddne;
     }
 
     header a{
@@ -36,6 +37,17 @@
       margin-top: 6rem;
       margin-bottom: 3rem;
       font-weight: 900;
+      text-align: center;
+    }
+
+    hr{
+      border: 0;
+    }
+
+    hr:after{
+      content: "\2748 \2748 \2748";
+      margin: 1rem 0;
+      border: 0;
       text-align: center;
     }
 
@@ -55,11 +67,17 @@
       padding: 0;
     }
 
+    #update{
+      display: block;
+      height: 0;
+    }
+
   </style>
 </head>
 <body>
   <header>
     <a href="" class="novel-title">{{ site.title }}</a>
+    <a href="#update" class="update">Last update</a>
   </header>
   <main>
     <article class="novel">
