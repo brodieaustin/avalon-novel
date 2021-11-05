@@ -19,10 +19,11 @@
     }
 
     header{
+      display: flex;
+      justify-content: space-between;
       padding: 1rem;
       background-color: #333;
       color: #fff;
-      overflow: hiddne;
     }
 
     header a{
@@ -31,6 +32,11 @@
       text-decoration: none;
       text-transform: uppercase;
       letter-spacing: 1px;
+    }
+
+    .update{
+      text-transform: none;
+      letter-spacing: .5px;
     }
 
     h1{
@@ -46,6 +52,7 @@
 
     hr:after{
       content: "\2748 \2748 \2748";
+      display: block;
       margin: 1rem 0;
       border: 0;
       text-align: center;
