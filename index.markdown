@@ -376,8 +376,6 @@ The princess looked at him, not quite sure what the say. Where had this observat
 
 ***
 
-<span id="update"></span>
-
 The picnic was over and her mother announced it was time to return to the house. Returning meant starting the early evening rituals that took place before dinner. The princess knew that she had nothing to look forward to but another round of washing and dressing, being handled by her maid, a long dinner with any guests or courtiers were still lingering about the house. Then even an even longer time spent in the parlor with her mother and the other ladies.
 
 She detested playing cards, and could only read for a brief time before the parlor's heat and the dull atmosphere put her to sleep. Then her mother would inevitably scold her for dozing off like a common laborer on the side of the road. "It is, and certainly will be, your duty to inject life and vitality into whatever situation you find yourself in. As the betters of so many, so many will look to you. You are a..."
@@ -506,6 +504,8 @@ The carriage starting rolling again. The princess fell back into her seat, still
 
 She caught his eyes just before they were too far out of sight. He looked as miserable as she felt right now.
 
+<span id="update"></span>
+
 # Chapter 2: The Space Between #
 
 Dinner that night proved to be even more agonizing than usual. The princess made her appearance as she was obligated to do, at the time she was obligated to appear.
@@ -550,7 +550,7 @@ She didn't care to hear more of an explanation about the trees and their fate. "
 
 "The boy didn't tell you who he was?" the lesser nobleman asked.
 
-"No, isn't that the stragest thing."
+"No, isn't that the strangest thing."
 
 "In my limited experience, the priests observe their own ways closely, and care little for ours," the official said.
 
@@ -564,26 +564,44 @@ She didn't care to hear more of an explanation about the trees and their fate. "
 
 "Happen?" her father replied, tilting his head in confusion. "Why I suppose after the have finished their tasks that he will be punished."
 
-"Punished? But why?" she cried out. "Did he really do anything that wrong? He's just a child, after all."
+The magistrate added, "The priests are known for their creative punishments."
 
-"No, he is a priest," the magistrate replied. "His life is bound up with a different set of rules than ours."
+"But why? Why punish him at all?" she cried out. "Did he really do anything that wrong? He's just a child."
 
-"Dear, you must put this aside, it is no concern of our what happens to this boy, this priest. Let us close this matter up."
+"But, he is a priest," the magistrate replied. "His life is bound up with a different set of rules than ours. Those rules were broken. That is the logic that law follows...theirs and ours." The judge nodded his approval, affirming that the law did, in fact, work this way.
+
+The princess tried to not be visibly upset. She could not tell how effectively she was doing this. Perhaps not that well. Her father stepped in to halt the conversation any further, "You must put this aside, it is no concern of ours what happens to this boy, this priest. Let us close this matter up."
 
 "I agree," her mother added. "We need space between us and this unpleasant subject."
 
 The princess knew she couldn't leave the table, not without breaching more protocol than she already did. She knew her father, who generally was an indulgent father, was barely tolerating her transgression just now.
 
-
-
-
+***
 
 The princess awoke the next morning to a dark room, even after the chambermaid had pulled back heavy curtains covering her windows. "It will be a gray day today, your highness," the maid commented.
 
-The princess turned over in bed, shutting out the windows, and buried her head in her pillow.
-
-She opened one forcefully shut eye and saw the chambermaid's blurry outline standing alongside the bed. The chambermaid had her hands crossed, and very meekly said, "Should I have the house mistress tell your mother you're not well, princess?"
+The princess turned over in bed, shutting out the windows, and buried her head in her pillow. She opened one forcefully shut eye and saw the chambermaid's blurry outline standing alongside the bed. The chambermaid had her hands crossed, and very meekly said, "Should I have the house mistress tell your mother you're not well, princess?"
 
 The princess closed her open eye, squeezed both tighly togther, considered the matter, and said, "Yes, I'm not well this morning."
 
-The chambermaid replied a soft, "Very well" and quietly left the room.
+The chambermaid replied a soft, "Very well" and quietly left the room, leaving the princess to the silent contours of her dark, gray room.
+
+She lost track of how long she lay there, tossing back and forth. She wasn't comfortable. It didn't feel like a luxury to be laying there broken out the household's pace. Her back ached and her head too. A daytime heat rose up through her body, which would have been pleasant during a nighttime chill, but now just irritated and agitated her.
+
+She bolted up in bed just as her mother walked in with the house mistress. Her mother began buzzing about her room, making offhand observations, "I must come in your chambers more often...this table is much too shabby...make a note that we must replace these lamps with something else. I can't bear to look at them..."
+
+The house mistress dutifully followed her mother, recording these observations in a notebook she kept around her neck, suspended him a braided silver chain.
+
+They stopped at the foot of her bed. "Well, I'm glad to see you're feeling better," her mother said. "I have very exciting news for you."
+
+The princess rubbed her hands through the thick dark tangle of her hair. "What's the news?" She was already convinced that it wouldn't be exciting enough to rouse her out of her agitated state.
+
+"The priests are completing their rituals and by all accounts they have been very successful." As she said this, the princess wondered what this meant, and if her mother knew what this meant. "So, your father, at my request, has approved hosting a ball, here, tomorrow night. We are already making plans. Invitations are being sent by couriers as we speak. Isn't this simply wonderful news? It's been far too long since we've hosted a ball."
+
+The princess had vague memories of previous balls where she had been trundled around like a small object of great value, passed through the hands of visitors from different corners of the kingdom. Remarked upon, marveled at when she performed some cute trick that children inevitably learn to dazzle the adults in the room.
+
+"And for you, darling, it's been much too long. I realize only now how cruel it has been to keep you out of society. Your father and I have been much too wrapped up in the kingdom's business. But that all changes, starting today." Her mother paused, "And listen, listen here. I promise you that will have more of my attention during this very important transition in your life. Not just your life. All of our lives. We need to properly introduce you to society and lay the groundwork for what comes next."
+
+"What comes next?" the princess asked.
+
+"Adulthood, marriage. Titles. Everything. Just as I experienced. You will experience, only on a much grander scale. I will be sure of that."
