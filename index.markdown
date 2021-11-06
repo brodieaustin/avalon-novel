@@ -501,3 +501,89 @@ Her mother chuckled, which seemed natural, if a little indecorous, "But he's jus
 "Very well. I take my leave and promise that the boy will not be a concern of yours anymore."
 
 "I am pleased to hear it. Driver? Driver? Carry on and take us home, please."
+
+The carriage starting rolling again. The princess fell back into her seat, still staring out the window. As they passed the contingent of priests, she could help but look for the boy. There he was, held in place by the High Priest's firm grip on his shoulder.
+
+She caught his eyes just before they were too far out of sight. He looked as miserable as she felt right now.
+
+# Chapter 2: The Space Between #
+
+Dinner that night proved to be even more agonizing than usual. The princess made her appearance as she was obligated to do, at the time she was obligated to appear.
+
+The only motivation she could muster inside was a strong desire to know if the High Priest would be a dining with them that night. She wasn't so much interested in the High Priest himself, though she was curious what her assessment of her had been, but wanted to hear more about the boy.
+
+It would be right to say that she had been fretting from the time she returned home to the time she stepped foot in the long narrow dining room, but she could feel a constant tug of anxiety and concern in the back of her mind. That subtle yet gnawing sensation had made it nearly impossible to concentrate on anything and made time pass more slowly than usual.
+
+The priests had vanished from view once they arrived on the grounds. She wondered where they could be going, and what important business they were attending to. As she had earlier in the day, she started to marvel over the fact that she either had never noticed, or never taken much interest in the contingent of robed figures who would appear at their house on some semi-regular basis.
+
+Certainly she knew that the priests existed and knew that they were a very secretive order. She knew that her father relied on them in some capacity in his role as king, but she could not even begin to formulate what this interaction must look like.
+
+Mulling over what little information she did have, she had decisively come to the conclusion that the little boy was an unlikely candidate to be a priest. The priests they passed on the road seemed so removed form life, so rigid and formal. The High Priest, in particular, seemed of this world, but also stood apart from it.
+
+Perhaps that's why she wondered what he had made of her when he fixed his gaze upon her. She couldn't say it words, but instinctively knew that he was judging her by some criteria that she could not access and did not know, maybe could not know.
+
+She wondered which parts of himself that little boy would have to trim away, like a gardener at a hedgerow, to become the kind of priest who wouldn't be pressed down by someone like the High Priest.
+
+Once in the dining room, with the service about to being, she felt her interest in the proceedings diminish when she saw that the guests were just some minor official, a judge, and a some lesser nobleman and his wife.
+
+Throughout the dinner she followed the protocols that she knew almost instinctively now. She feigned interest when it seemed that she should, and disengaged when it was clear the guests were speaking of subjects that didn't include her.
+
+As the princess, the guests around her felt obliged to engage in some brief back and forth, which usually amounted to questions about her education or reading, or about the house and grounds. She wasn't inclined to talk much about the former, and didn't care to know much about the later.
+
+So after a few awkward volleys, the guest would usually shrug and turn back to the table's conversation, satisfied that they had done their duty as guests in the King's house to engage his daughter. If nothing else, this would allow each on to say later over nightcaps or a game of cards, "Yes, a perfectly charming young woman. You must be so proud." At which point the adults would nod in agreement, and move on to other concerns.
+
+Over the course of the service, she had become so lulled into the routine of feigning and disengaging that she didn't hear her mother addressing a direct question to her, something her mother rarely, if never, did in these formal settings. "Dear, remind us how you came across the boy."
+
+Putting on her most agreeable princess demeanor, she replid, "The boy? Mother"
+
+"Yes, the young priest. The judge was just asking about him, having heard previously before about the youngest priest to even be accepted into the order."
+
+"Yes, I was telling your mother that if it weren't for the writings and decisions of one of most revered jurists of the last generation, the young man would not have been considered for the spot. Naturally, being a man of the law, I take great interest when legal theory materializes in the practical."
+
+"We were in the eastern forest, as I'm sure mother has already explained. I was talking a walk. I came upon a grove I remembered visiting as a little girl. I was surprised to find that it had been cut down and the trees removed from the forest."
+
+"What that old cyprus grove?" her father interjected. "We had those trees removed months ago. Had I known you had an attachment to the spot, I would have told your sooner."
+
+She didn't care to hear more of an explanation about the trees and their fate. "Yes, father. As I said, I was surprised to see the trees gone and then there he was, asking me if I was okay."
+
+"Why wouldn't you have been okay, dear?" her mother asked, but moved along the conversation when her daughter didn't reply. "You see the boy just wandered onto the estate. We had no idea who he was until we encountered the High Priest."
+
+"The boy didn't tell you who he was?" the lesser nobleman asked.
+
+"No, isn't that the stragest thing."
+
+"In my limited experience, the priests observe their own ways closely, and care little for ours," the official said.
+
+"My great-uncle was part of the priesthood, for a time," the nobleman's wife interjected. Even the princess knew that this nobleman's wife came from a disgraced family, so it was a surprise that she brought up and branch of it at all.
+
+"Certainly my experience today has spoken to their strange ways," her mother concluded.
+
+"You must remember my love that the priests bear a heavy burden and perform an important role. We must honor and respect their desire to protect their customs."
+
+"But what will happen to him?" the princess blurted, almost interrupting her father, which was frowned up, especially during formal events like this, and around his subjects.
+
+"Happen?" her father replied, tilting his head in confusion. "Why I suppose after the have finished their tasks that he will be punished."
+
+"Punished? But why?" she cried out. "Did he really do anything that wrong? He's just a child, after all."
+
+"No, he is a priest," the magistrate replied. "His life is bound up with a different set of rules than ours."
+
+"Dear, you must put this aside, it is no concern of our what happens to this boy, this priest. Let us close this matter up."
+
+"I agree," her mother added. "We need space between us and this unpleasant subject."
+
+The princess knew she couldn't leave the table, not without breaching more protocol than she already did. She knew her father, who generally was an indulgent father, was barely tolerating her transgression just now.
+
+
+
+
+
+The princess awoke the next morning to a dark room, even after the chambermaid had pulled back heavy curtains covering her windows. "It will be a gray day today, your highness," the maid commented.
+
+The princess turned over in bed, shutting out the windows, and buried her head in her pillow.
+
+She opened one forcefully shut eye and saw the chambermaid's blurry outline standing alongside the bed. The chambermaid had her hands crossed, and very meekly said, "Should I have the house mistress tell your mother you're not well, princess?"
+
+The princess closed her open eye, squeezed both tighly togther, considered the matter, and said, "Yes, I'm not well this morning."
+
+The chambermaid replied a soft, "Very well" and quietly left the room.
