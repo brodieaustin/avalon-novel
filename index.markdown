@@ -2,7 +2,7 @@
 layout: base
 ---
 
-# Ch 1: More Than This #
+# Chapter 1: More Than This #
 
 "Where is Avalon? I want to see Avalon!" the princess shouted, running in her morning dress to her bedroom door. She slammed herself against it, surprised for a moment by how sturdy and unforgiving it was, unbending even to the wishes of its princess.
 
