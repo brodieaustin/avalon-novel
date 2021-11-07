@@ -666,4 +666,58 @@ She entered through the metal and glass door, letting the heat and humidity insi
 
 The princess told the gardener she would return and walked closer to the figure, who she realized was the High Priest. She would not have assumed that a person like this would be admiring flowers the way he was.
 
-The high priest looked up and noticed her before she could acknowledge him, "Ah, your highness. I didn't know that you were interested in the gardenign and flowers."
+The high priest looked up and noticed her before she could acknowledge him, "Ah, your highness. I didn't know that you were interested in the gardening and flowers."
+
+"I was just passing through really...to ask the gardeners to cut a bouquet of flowers for me."
+
+"Ah, yes, of course. Cut flowers do make for a pretty sight in one's room."
+
+She felt dismissed by this remark and it bothered her. Why did this high priest seem to treat her like some kind of object under glass, something to be observed and commented upon? Was she doing something to invite this scrutiny?
+
+"They do, but these are not for me."
+
+The high priest leaned forward to more closely examine one of the flowers before him, he breathed in the flower's fragrance more deeply. "Who are they for?"
+
+This seemed like a very forward question, but she felt compelled to answer him, to justify herself for some reason. "For my friend, for Avalon."
+
+"Avalon? Do you see her often?"
+
+"Not as much any more. But whenever I can, I visit with her."
+
+"And the King and Queen approve of these visits?"
+
+"I suppose they do." She decided to counter with a bold question of her own, "Why are asking these questions."
+
+The High Priest drew up to full height, breathing in the air around him with a deep satisfied gulp. "Amazing isn't. So many flowers in this hothouse, so many fragrances, all releasing their scents into their air, all blending together. And yet I can still identify the scent of this flower here, it smells so particular and it lingers. And yet this flower, this particular species relies on..." he scanned the area around them then pointed out another type of flower, "...that one in order to pollinate and survive. So unique, yet so bound to what is around it."
+
+He looked around, taking note of the workers in the hothouse that were nearby, "Please come walk with me." They left the hothouse with him guiding her by the arm, not forcefully, but his will seemed to channel itself through his touch. There was no mistaking that she was supposed to follow him and his direction. "I want to show you something."
+
+They walked into one of the small orchards of fruit trees that had been planted generations ago. The trees never bore much fruit, just enough for pleasant fall time snacks. Most of the fruit had been harvested weeks before, leaving only the smell of sweet sour rotting fruit. She had to hop over the mushy masses that were left, even after the pigs had routed through the remains.
+
+Another priest stood at the edge of the orchard, seemingly standing watch. The High Priest passed him without acknowleding him at all. The princess tried to catch the priests' attention, trying to get some piece of information to orient herself with. But, much like on the road before, the priest keep his eyes concealed, unmoved by whatever wild look of desperation might have passed her face.
+
+The walked to the center of the orchard. As they grew closer, she could hear faint groans. Then she saw the boy laying on his side, clutching his stomach, groaning. She tried to rush forward to tend to him, but the priest's firm hand held her back.
+
+"No, this is his punishment." She looked up at him. "Did you think he would be lashed or stoned. No, he is a priest, not a common criminal, but he needed to be punished."
+
+"What did you do to him?"
+
+"He was made to eat these rotted apples until I deemed he had enough."
+
+"But he's sick now. He looks miserable."
+
+"Yes and hopefully this young boy will carry this lesson forward with him."
+
+"And that lesson is?"
+
+"As priests, we are of this world, but not a part of it. We stand a part from it. And must not break that vow."
+
+"Why is this code so important? What does it matter?"
+
+"That is a question that I cannot answer here. But I will say this. When I look at you, I see a young person, on the verge of adulthood, full of so much potential..."
+
+She must have given him a surprised look, because he stopped and added. "Yes, princess, I see potential in you, potential to be a great monarch, a wise ruler. But I also see currents in you that trouble me. I would never want the monarchy and priesthood to come into conflict. That would upset long standing understanding. You, this boy, even Avalon, yes, your precious Avalon, all have a role to play in that understanding, even though you don't realize it yet."
+
+"I can't say more, but know that your actions from today forward, have great import, more meaning than you may realize. So the next time you meet one of my priests in a forest clearing, do not invite him to picnic, no matter your personal feelings. Your personal feelings are like these rotted apples to a priest, only foul spoilings that will leave us sick and twisted, not like a priest at all. Do you understand?"
+
+The princes nodded, wincing slightly under his grip, which never loosened from her shoulder, and maybe even grew tighter as he delivered this speech or warning or threat to her.
