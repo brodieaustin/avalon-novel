@@ -1,4 +1,4 @@
----
+accordinglysubtleties---
 layout: base
 ---
 
@@ -574,7 +574,7 @@ The princess tried to not be visibly upset. She could not tell how effectively s
 
 "I agree," her mother added. "We need space between us and this unpleasant subject."
 
-The princess knew she couldn't leave the table, not without breaching more protocol than she already did. She knew her father, who generally was an indulgent father, was barely tolerating her transgression just now.
+The princess knew she could not leave the table, not without breaching more protocol than she already did. She knew her father, who generally was an indulgent father, was barely tolerating her transgression just now.
 
 ***
 
@@ -582,7 +582,7 @@ The princess awoke the next morning to a dark room, even after the chambermaid h
 
 The princess turned over in bed, shutting out the windows, and buried her head in her pillow. She opened one forcefully shut eye and saw the chambermaid's blurry outline standing alongside the bed. The chambermaid had her hands crossed, and very meekly said, "Should I have the house mistress tell your mother you're not well, princess?"
 
-The princess closed her open eye, squeezed both tighly togther, considered the matter, and said, "Yes, I'm not well this morning."
+The princess closed her open eye, squeezed both tightly together, considered the matter, and said, "Yes, I'm not well this morning."
 
 The chambermaid replied a soft, "Very well" and quietly left the room, leaving the princess to the silent contours of her dark, gray room.
 
@@ -605,3 +605,65 @@ The princess had vague memories of previous balls where she had been trundled ar
 "What comes next?" the princess asked.
 
 "Adulthood, marriage. Titles. Everything. Just as I experienced. You will experience, only on a much grander scale. I will be sure of that."
+
+"Mother, it's too early to have my life plotted out for me. Can we wait until after luncheon?"
+
+"Too early? It feels like we're positively wasting the day. Come now, it's time to get up. There's so much to do."
+
+"Uggh, fine. But when can I see, Avalon? It's been far too long."
+
+Her mother, who was about to leave her room, turned back and said in a feigned whisper, "Well, I wasn't supposed to say this, but there is a chance that you will be able to see Avalon at the ball."
+
+***
+
+Her mother kept her by her side for much of the day. Together they oversaw many of the preparations being made for the ball. Servants criss-crossed across the house, carrying linens, bringing fine wines from the cellar. Everywhere the princess looked servants were cleaning, dusting, polishing.
+
+It had been several years since she had seen the ballroom, the topmost floor of the grand house's central wing. When she was much younger, her governess at the time would allow her to romp in the large space, lined with windows, when the weather didn't allow them to be outside.
+
+Her governess at the time had extolled exposure to nature. Her mother had been reluctant at first, but came to understand that this method of education was becoming more fashionable among in the elites in the kingdom. Not wanting to be outdone, it seemed like there was a period of time when the princess lived much of her waking life outside.
+
+It was also a period of time when she remembered Avalon truly entering her life, at least in a meaningful way. It was during these outdoor sessions that she had encountered Avalon with her governess, and formed an attachment to this person who had come to play such an important role in her life.
+
+That governess had been released for some reason, the family's "relationship" as her mother had called it had come to an end. It was the beginning of a period of time when she saw Avalon more and governesses less. Occasionally a tutor in one subject or another would appear in her life, then readily disappear, partly due to the fact that she started to understand how to dispatch the people who were supposed to educate her, which then led to her having more time to spend in what ever way she chose.
+
+The princess didn't feel that her education suffered much because of her tactics. She probably didn't grasp the subtleties of several dead languages, but she felt that she had learned so much about the world from Avalon. Besides, she wondered, certainly then, perhaps less so now, what a princess needed with stuffy tutors and their rote rehearsals of whatever subject matter they had mastered in their own youth.
+
+Even though she had not been in the ballroom for years, it still seemed like a grand space. Though the weather prevented the space from being lit up and luminous with sunlight, the space still seemed large and took what light there was a turned it into magic. Even the columns of dust that swirled in the faint light seemed to glitter like a rare substance.
+
+Perhaps it was a callback of her younger feelings about the space, about the governess, and Avalon, of those days when her life and, more importantly, her feelings about her life, were simpler, but she felt a ping of excitement course through her. She started to see the counters of the high vaulted ceiling in a different way, and could imagine the sounds of music and voices and dancing feet as they would curl about those vaults and resonate with a rich sound.
+
+She started to trace out the lines in the intricate wooden floor, following the tracks of light and dark wood, hopping from diamond shape to square, with a combination of her natural and learned grace. The movement quickened her body, her cares started to feel further away. She begrudgingly admitted to herself that she was looking forward to the ball.
+
+This excitement didn't completely blot out her concerns about the boy and her frustration over not seeing Avalon, but maybe the later issue would be resolved soon. As for the boy, perhaps, she started to argue with himself, he really did deserve any punishments that the priests administered. Maybe he had done something sever enough to deserve his treatment, or at least maybe she didn't know enough to say for sure.
+
+This line of thinking took root in her mind as the day progressed, right until she was put into the hands of her mother's dressmaker. The dressmaker lived in a nearby village and been rushed to the estate to ready the Queen and Princess for the ball.
+
+The princess spent several hours perched on top of a wobbling box in front of a mirror, twisting round and round. Pins seemed to thread in and out around her body at every imaginable angle.
+
+It was too late to construct a new gown; so her and her mother would have to make due with taking a dress and altering it. In the princesss's case, the servants were able to bring down from storage several gowns that the princess had never worn, did not even recognize. Her mother, apparently, had been buying gowns for her without her event realizing it, storing them for an occasion when she might need them.
+
+The dressmaker had to mend to dress to make it fit properly. Then she began ruching and pleating, pulling and pressing to change the dress' look. "And you're sure this is the style now?"
+
+"Yes, my lady. I make it a point to keep up with the evolution of styles around the capital. Knowing that I may be called on in a situation exactly like this one."
+
+The dressmaker's reply gave her mother great satisfaction. Her mother often bemoaned being so far from fashionable life in other parts of the kingdom. They spent so much of their time on her father's estate, where he preferred to spend his time. Because of this, the estate became the de facto court, and life in the kingdom shifted accordingly. At least this was the explanation that her mother would give when she was lamenting this facet of her life. "Not that I am not extremely privileged in other ways," her mother would add, not completely unaware that the Queen enjoyed privileges that many others did not.
+
+***
+
+By the next day, the princess' mood and outlook had changed considerably. She was genuinely looking forward to the ball, though not particularly keen on her mother's constant allusions to her entering society. One the thing the princess did not want was to feel that this society's eyes were watching her every move. She didn't feel ready to address herself to this being, this thing that her mother portrayed as being everywhere and everything all at once.
+
+The princess felt that she was excited on her own terms. Not society's. Not her mother's. So she would enjoy the ball for what it was. By tomorrow, much of the turmoil she experienced the last few days would feel like a distant memory. The only problem she faced now was that the evening couldn't come soon enough.
+
+Her mother did not want the princess with her like she did yesterday. This actually came as something of a relief, because her mother was controlled by her nerves now. Everything seemed to be teetering on the edge of disaster or coming together better than she could have hoped. She watch her mother bound these hills of despair and elation, being totally ignored by her, several times before she decided to slip away and roam the gardens outside.
+
+The sun was shining again. The air was starting to feel cooler and crisp, but it was still warm enough to enjoyed ambling through the gardens.
+
+She walked aimlessly for a while before deciding to walk by the hothouses where the gardeners cultivated flowers. Her father took a great interest in cultivating flowers, even hosted several competitions for other like himself. Even though he inevitably won these competitions, he was so deeply interested in the subject, that he barely seemed to notice that he had won. His inattention to this fact made the event tolerable for the other participants.
+
+As she crossed the lawn to the hothouse, she realized that she would ask for help assembling a bouquet for Avalon, for when she saw her finally. She knew that Avalon loved flowers. When she would walk with Avalon and the governess, they would often steer their course to the hothouse to admire what was growing there.
+
+She entered through the metal and glass door, letting the heat and humidity inside envelope her. She had almost felt chilly walking outside before entering. Now her clothes started to feel heavy and awkward. One of the gardeners greeted her. She started to approach him to make her request, but then noticed an unexpected figure down at the opposite end deeply examining the plants there.
+
+The princess told the gardener she would return and walked closer to the figure, who she realized was the High Priest. She would not have assumed that a person like this would be admiring flowers the way he was.
+
+The high priest looked up and noticed her before she could acknowledge him, "Ah, your highness. I didn't know that you were interested in the gardenign and flowers."
