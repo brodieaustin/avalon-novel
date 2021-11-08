@@ -760,4 +760,16 @@ In her mind, he was a good kind, the model of a king. He could be inflexible and
 
 They walked together down her wing of the house to the where the grand central staircase rose to unite the various parts of the house. At this point, her father was mostly silent, having used up all of the small talk he had stored up to use with her. Typically in these situations, he wouldn't know what to say and would prefer to be silent than the say frivolous words.
 
-In this way, she thought, her father and mother seemed like such opposites, such an unlikely pairing. But she remembered that often in their royal lives forces beyond their control could end up shaping what, for other people, were deeply personal decisions. Not so for them.
+In this way, she thought, her father and mother seemed like such opposites, such an unlikely pairing. But she remembered that often in their royal lives forces beyond their control could end up shaping what, for other people, were deeply personal decisions. Not so for them. Or so she had been told.
+
+***
+
+Despite the ball being announced in such a haphazard way, the guests seemed too numerous for the princess to count. She was able to recall or remember the first handful of guests that arrived. After that, she lost track of the faces, the dresses, the compliments.
+
+Much to her mother's delight there was small selection of eligible matches for the princess to engage with during the night. Some a little younger than herself, most significantly older. Regardless of their status or disposition towards her and the prospect of wooing her, each became a willing dance partner for a turn or two, before swirling off to engage in other pursuits.
+
+During much of the ball, the guests crowded the edges of the ballroom, while the dance floor saw a steady flow of gowns and long tailed coats, feet tapping and scraping their way across the intricate patterns in even more intricate patterns of arched arms and sweeping legs.
+
+Half way through, the princess had to take a break. She was flushed and could feel sweat starting to roll down the angles of her shoulder blades. She sat and felt content and chatted merrily with the guests around her.
+
+She knew that her mother was very satisfied with her comportment and bearing. She caught her mother chatting with the coteries of ladies around her, each one nodding approvingly in her direction. Each one had been in a situation similar to hers at some point. She could only imagine the stories and memories they were sharing and reliving together in that huddle of finery.
