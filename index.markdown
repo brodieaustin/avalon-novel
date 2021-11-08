@@ -692,9 +692,11 @@ The High Priest drew up to full height, breathing in the air around him with a d
 
 He looked around, taking note of the workers in the hothouse that were nearby, "Please come walk with me." They left the hothouse with him guiding her by the arm, not forcefully, but his will seemed to channel itself through his touch. There was no mistaking that she was supposed to follow him and his direction. "I want to show you something."
 
-They walked into one of the small orchards of fruit trees that had been planted generations ago. The trees never bore much fruit, just enough for pleasant fall time snacks. Most of the fruit had been harvested weeks before, leaving only the smell of sweet sour rotting fruit. She had to hop over the mushy masses that were left, even after the pigs had routed through the remains.
+They walked into one of the small orchards of fruit trees that had been planted generations ago. Another priest stood at the edge of the orchard, seemingly standing watch. The High Priest passed him without acknowledging him at all.
 
-Another priest stood at the edge of the orchard, seemingly standing watch. The High Priest passed him without acknowleding him at all. The princess tried to catch the priests' attention, trying to get some piece of information to orient herself with. But, much like on the road before, the priest keep his eyes concealed, unmoved by whatever wild look of desperation might have passed her face.
+The princess tried to catch the priests' attention, trying to get some piece of information to orient herself with. But, much like on the road before, the priest keep his eyes concealed, unmoved by whatever wild look of desperation might have passed her face.
+
+The trees never bore much fruit, just enough for pleasant fall time snacks. Most of the fruit had been harvested weeks before, leaving only the smell of sweet sour rotting fruit. She had to hop over the mushy masses that were left, even after the pigs had routed through the remains.
 
 The walked to the center of the orchard. As they grew closer, she could hear faint groans. Then she saw the boy laying on his side, clutching his stomach, groaning. She tried to rush forward to tend to him, but the priest's firm hand held her back.
 
@@ -720,4 +722,42 @@ She must have given him a surprised look, because he stopped and added. "Yes, pr
 
 "I can't say more, but know that your actions from today forward, have great import, more meaning than you may realize. So the next time you meet one of my priests in a forest clearing, do not invite him to picnic, no matter your personal feelings. Your personal feelings are like these rotted apples to a priest, only foul spoilings that will leave us sick and twisted, not like a priest at all. Do you understand?"
 
-The princes nodded, wincing slightly under his grip, which never loosened from her shoulder, and maybe even grew tighter as he delivered this speech or warning or threat to her.
+The princess nodded, wincing slightly under his grip, which never loosened from her shoulder, and maybe even grew tighter as he delivered this speech or warning or threat to her.
+
+***
+
+She thought about the High Priest's speech as she prepared for the ball. Her maid asked her several times if she was feeling any better. "I'm fine, thank you," was her curt reply.
+
+She hoped that the boy would be okay and would recover from his punishment. She supposed that being forced to eat rotten apples would make him sick, but surely he would recover.
+
+More than this, she puzzled over what the priest said about roles and connections between things. How could her world be connected to his at all?
+
+Another train of thought nagged at her concerning Avalon. For the past several years, Avalon had been such a fixture in her life. Avalon would come and go, sometimes disappearing for weeks at a time. She never really explained where she had gone or what she had done. These trips, however, never interrupted their afternoon walks, or rainy mornings spent in Avalon's rooms listening to stories.
+
+Yet recently the space between them seemed to widen. Most recently Avalon had been missing for over a month, the longest time the princess remembered her being gone for. And now she desperately wanted to see her, and she was only a few hours away from doing so.
+
+Her anticipation and longing helped soften her attitude and tolerate her maid's meek ministrations that her maid delivered. Finally the last of the rings was set on her slender fingers and the maid stepped away to let the princess admire herself in the mirror.
+
+The princess held out a hand, asking without words, to be helped up out of chair. She walked over to the mirror to fully asses herself. The dressmaker had made the dress more presentable, perhaps the detailing along the bodice was a little fussy and distracting. The princess did prefer plain, but well made things, but she could not argue that the gown had a certain fit and finish.
+
+She twirled side to side several times trying to assess the gown's full effect. Finally pleased by what she saw, she said to her maid, "You may leave now."
+
+The maid curtseyed and too her leave to join the othe servants as they made their final preparations for the ball. The princess remained in her room, pacing nervously hoping that the hour would arrive when something could actually happen, instead of endlessly waiting for it to happen.
+
+Finally someone knocked on her door. It wasn't a knock she was used to, perhaps a new servant. She said loudly, "Come in."
+
+She did not expect to see her father standing in her doorway. He was medium height, but looked like a strong man, even when just a dark outline in the doorway.
+
+"Father?" I didn't expect to see you there. The princess made a deferential bow to him.
+
+"I didn't mean to surprise you. I thought I should take this opportunity to escort you down to the main hall where we will receive our guests."
+
+She smiled at her father and said, "I would like that."
+
+Her father, the King, was a serious man, took his role as King seriously. He diligently read his briefings and documents, responded promptly to his councillors, weighed matters of state deliberately, and so on.
+
+In her mind, he was a good kind, the model of a king. He could be inflexible and unbending, but she assumed this would be the case for her if she were ever monarch. No one to say know to you. How did he manage to maintain his sense of propportion about things? Rather than being swept up in the trappings of his station, he seemed to accept things as matter of fact, and work hard to ensure their presense in his and his children's lives.
+
+They walked together down her wing of the house to the where the grand central staircase rose to unite the various parts of the house. At this point, her father was mostly silent, having used up all of the small talk he had stored up to use with her. Typically in these situations, he wouldn't know what to say and would prefer to be silent than the say frivolous words.
+
+In this way, she thought, her father and mother seemed like such opposites, such an unlikely pairing. But she remembered that often in their royal lives forces beyond their control could end up shaping what, for other people, were deeply personal decisions. Not so for them.
