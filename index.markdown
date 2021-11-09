@@ -742,7 +742,7 @@ The princess held out a hand, asking without words, to be helped up out of chair
 
 She twirled side to side several times trying to assess the gown's full effect. Finally pleased by what she saw, she said to her maid, "You may leave now."
 
-The maid curtseyed and too her leave to join the othe servants as they made their final preparations for the ball. The princess remained in her room, pacing nervously hoping that the hour would arrive when something could actually happen, instead of endlessly waiting for it to happen.
+The maid curtseyed and took her leave to join the other servants as they made their final preparations for the ball. The princess remained in her room, pacing nervously hoping that the hour would arrive when something could actually happen, instead of endlessly waiting for it to happen.
 
 Finally someone knocked on her door. It wasn't a knock she was used to, perhaps a new servant. She said loudly, "Come in."
 
@@ -756,7 +756,7 @@ She smiled at her father and said, "I would like that."
 
 Her father, the King, was a serious man, took his role as King seriously. He diligently read his briefings and documents, responded promptly to his councillors, weighed matters of state deliberately, and so on.
 
-In her mind, he was a good kind, the model of a king. He could be inflexible and unbending, but she assumed this would be the case for her if she were ever monarch. No one to say know to you. How did he manage to maintain his sense of propportion about things? Rather than being swept up in the trappings of his station, he seemed to accept things as matter of fact, and work hard to ensure their presense in his and his children's lives.
+In her mind, he was a good kind, the model of a king. He could be inflexible and unbending, but she assumed this would be the case for her if she were ever monarch. No one to say know to you. How did he manage to maintain his sense of proportion about things? Rather than being swept up in the trappings of his station, he seemed to accept things as matter of fact, and work hard to ensure their presense in his and his children's lives.
 
 They walked together down her wing of the house to the where the grand central staircase rose to unite the various parts of the house. At this point, her father was mostly silent, having used up all of the small talk he had stored up to use with her. Typically in these situations, he wouldn't know what to say and would prefer to be silent than the say frivolous words.
 
@@ -773,3 +773,59 @@ During much of the ball, the guests crowded the edges of the ballroom, while the
 Half way through, the princess had to take a break. She was flushed and could feel sweat starting to roll down the angles of her shoulder blades. She sat and felt content and chatted merrily with the guests around her.
 
 She knew that her mother was very satisfied with her comportment and bearing. She caught her mother chatting with the coteries of ladies around her, each one nodding approvingly in her direction. Each one had been in a situation similar to hers at some point. She could only imagine the stories and memories they were sharing and reliving together in that huddle of finery.
+
+The musicians began to play again and dancers found partners and began to assemble on the dance floor. The tune and tempo dictating a line dance, with the dancers pairing up as they criss crossed the floor, then remerged back in to the line.
+
+As the princess took her place in the line of other ladies dancing this round, she could hear the mood of the room shift. Somehow, all at once, everyone's attention shifted to a new center of gravity. The princess looked around to understand what was distracting everyone from the dance floor, which normally was the center of attention for a ball.
+
+Then she realized what had happened. She realized the moment that she brought her own attention back to the lines before her and looked across to see an unlikely dance partner. The king had joined the dance, standing directly across from her.
+
+The tittering and talk in the room caused the musicians to stop their tunings momentarily. The king, smiling generously at the all of the attention washing over him, gestured for the room to quiet down, which it did almost immediately. He nodded to the lead musician. The musicians harmonized their instruments and began to play.
+
+The music moved at a brisk pace. It had intricate timing, and sometimes the tempo would change suddenly, signaling a new formation or movement in the dance. Dancing in this way required the dancer's complete concentration to fully appreciate the directions being give them.
+
+The musicians were skilled enough to not just blindly lead the dancers along, but to respond to the dancers as well. A couple who seemed too attached might cause a rapid shift in the music to indicate that it was time to pair up again, or another pairing might catch and hold the room's attention, causing the musicions to stretch out the theme a little longer.
+
+Certainly, they responded to the moment when she finally crossed paths with her father. The music seemed to change entirely, signaling that they would be dancing with these partners for a while. Indeed, every eye was on them as they held their dancing poses, bowing, dipping, and crossing each other in time with the music.
+
+Her father almost seemed indifferent to the fact that they were dancing together. But the music sped up again and they started to travel the dance floor at a steady trotting pace. The music slowed again with them in the center of the room.
+
+Her father leaned in and whispehred to her, "I'm glad we were given this moment to speak. I have something important to say to you."
+
+Her father's whispered seemed to push the room's clatter and chatter away. She was focused solely on his voice, the music, and making her body move along as the music required.
+
+The made a few more rounds before he leaned in again and said, "Avalon will not be attending the ball. And I have been told that you are not allowed to see her any more."
+
+He twirled the princess away from him and then back towards him. She tried to master the fire in her face, but he must have seen some of it. "I know you are upset, but do try to enjoy the rest of tonight."
+
+The music ended and the dance was over. She pulled away from her father, walking stiffly towards the ballroom entrance. People leaned in and told her how beautiful she looked and how splendid it was to see her dancing with the King.
+
+The princess blankly smiled and nodded, consumed by what her father had just said. Had she heard him correctly, "never see Avalon again." And he said he had been told, told by who? The princess assumed she knew the answer to that question. She was sure the High Priest was behind this, though she couldn't fathom why his opinion had such sway over the king, her father.
+
+She must have been leaning against the doorframe, looking faint. Her mother approached her and said quietly, "Are you feeling well? You look ghastly right now."
+
+"I'm...I'm feeling overheated, that's all."
+
+"A drawback from not wearing gowns often enough, I'm sure." Her mother replied. The princess studied her closely and saw a look of real concern in her mother's eyes that expressed something very different from her proper response to her daughter's condition. "Perhaps you should step outside and get some fresh air."
+
+"Yes, yes, I should..." the princess replied, starting the walk briskly down the short hallway that led to the grand stairs that wound their way back down the ground.
+
+# Chapter 3: Avalon #
+
+She wandered outside into the crisp evening air. As she stumbled around the grounds, she grew more and more angry about what happened during the dance. She wondered if her father had chosen that exact moment in the midst of this dance, in the midst of the spectacle that he created, with all eyes on them, to deliver this news to her.
+
+He must have known that she wouldn't take the news well, and tried to blunt the impact by staging this scene. She always assumed that her father was  too interested in the the business of being a king, or or his unusual pursuits, like cultivating flowers, to care much for crafting elaborate facades like this. She thought that he was as he appeared to be, slightly removed from daily life, the Diving King.
+
+She tried to imagine never seeing Avalon again, and a chill rippled up through her body, causing her to skip a step and stop where she was. She wanted to start sobbing, ugly tears that her mother wouldn't approve of, but didn't. She just trembeled with cold and range, stood in place, staring up at the darkening night sky.
+
+As she stood there, she heard a faint coughing sound in the distance. She realized it was coming from the orchard and wondered if it was the boy still there working off the effects of eating so many rotten apples. Maybe he still needed help. Maybe there was something she could do to correct something, even a little thing, when everything felt off kilter and broken inside her right now.
+
+She crept carefully towards the orchard. Thankfully, she didn't see any priests statitioned around the orchard keeping watch, so she proceeded quiety towards the spot where she had last seen the boy.
+
+In that same space in the middle of the orchard, now flooded with moonlight, she found him sitting, propping himself up agains the rocks. His head flailed from side to side and he kept his knees pressed up tight against his stomach.
+
+She gathered up her gown around her and knelt down, carefully to do so on the opposite side of where he obviosuly had been throwing up earlier. She reached out a hestitant hand and rested it on his shoulder.
+
+He didn't acknowledge her at first, so she gave his shoulder a little shake. "Are you okay?" she asked.
+
+The boy looked at her from the corner of his eyes, and rested his head on his arms, crossed over his knees. "You shouldn't be here," was his only reply.
