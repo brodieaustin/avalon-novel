@@ -504,8 +504,6 @@ The carriage starting rolling again. The princess fell back into her seat, still
 
 She caught his eyes just before they were too far out of sight. He looked as miserable as she felt right now.
 
-<span id="update"></span>
-
 # Chapter 2: The Space Between #
 
 Dinner that night proved to be even more agonizing than usual. The princess made her appearance as she was obligated to do, at the time she was obligated to appear.
@@ -761,6 +759,8 @@ In her mind, he was a good kind, the model of a king. He could be inflexible and
 They walked together down her wing of the house to the where the grand central staircase rose to unite the various parts of the house. At this point, her father was mostly silent, having used up all of the small talk he had stored up to use with her. Typically in these situations, he wouldn't know what to say and would prefer to be silent than the say frivolous words.
 
 In this way, she thought, her father and mother seemed like such opposites, such an unlikely pairing. But she remembered that often in their royal lives forces beyond their control could end up shaping what, for other people, were deeply personal decisions. Not so for them. Or so she had been told.
+
+<span id="update"></span>
 
 ***
 
