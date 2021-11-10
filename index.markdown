@@ -946,33 +946,33 @@ Avalon looked at her intently, "You are right, princess. You are not a child any
 
 "I don't think so."
 
-"Fine then. This is the story of Griselda:"
+"Well then, this is the story of Griselda:"
 
-Griselda was a woman who had lived many, many years ago in a small mountain village. She was a hearty woman and outlived her relatives, including her husband and her children. She became increasingly difficult to live with, so the villagers forced her to move further down the mountain.
+"Griselda was a woman who had lived many, many years ago in a small mountain village. She was a hearty woman and outlived her relatives, including her husband and her children. She became increasingly difficult to live with, so the villagers forced her to move further down the mountain."
 
-At this point, Griselda was tired of the villagers and their small complaints. So she was happy to move. She took her chickens and goats with her and found a new place to settle. In fact, she found an old tatched hut that had been adanboned. It seemed for a long time, because evertyhing needed cleaning and repairing. But Griselda had nothing but time, so she set to work."
+"At this point, Griselda was tired of the villagers and their small complaints. So she was happy to move. She took her chickens and goats with her and found a new place to settle. In fact, she found an old tatched hut that had been adanboned. It seemed for a long time, because evertyhing needed cleaning and repairing. But Griselda had nothing but time, so she set to work."
 
-Many years passed and the villagers had nearly forgotten about Griselda. Some of the villager elders would recount some argument she had gotten into a local magistrate or some other exploit that confirmed for everyone, even those that could hardly remember her, that they were better off with her out of their lives.
+"Many years passed and the villagers had nearly forgotten about Griselda. Some of the villager elders would recount some argument she had gotten into a local magistrate or some other exploit that confirmed for everyone, even those that could hardly remember her, that they were better off with her out of their lives."
 
-In those year, Griselda didn't think much time about the villagers either. Instead, she had become preoccupied with a book that she found hidden in the thatched hut, buried under the dirt floor. She happened upon it one day when she was removing old leaves and straw to place new straw on the floor.
+"In those year, Griselda didn't think much time about the villagers either. Instead, she had become preoccupied with a book that she found hidden in the thatched hut, buried under the dirt floor. She happened upon it one day when she was removing old leaves and straw to place new straw on the floor."
 
-The book was full of strange writings and symbols. It was a book of magic. Griselda, like many of us, didn't believe in magic, but she was interested in this book. It appealed to her that, in her solitude, she should come to understand and master secret knowledge that would set her apart form others, particuarly the nasty villagers who had driven her from her home.
+"The book was full of strange writings and symbols. It was a book of magic. Griselda, like many of us, didn't believe in magic, but she was interested in this book. It appealed to her that, in her solitude, she should come to understand and master secret knowledge that would set her apart form others, particuarly the nasty villagers who had driven her from her home."
 
-Little did Griselda, or the nasty villagers know, but this was a time of war in the land. The kingdom did not exist and lords battled with each other for territory. There was terrible battles in those times. Sometimes whole villages would be burned to the ground, their inhabitant impressed into the service of the conquering lord.
+"Little did Griselda, or the nasty villagers know, but this was a time of war in the land. The kingdom did not exist and lords battled with each other for territory. There was terrible battles in those times. Sometimes whole villages would be burned to the ground, their inhabitant impressed into the service of the conquering lord."
 
-Such an army was making it way to the mountains, to Griselda's hut and her former village. She was the first to be introduced to this particular lord and his soldiers. They stormed into her hut in the night, seized her animals and the meager stores of food she kept, and continued on their way.
+"Such an army was making it way to the mountains, to Griselda's hut and her former village. She was the first to be introduced to this particular lord and his soldiers. They stormed into her hut in the night, seized her animals and the meager stores of food she kept, and continued on their way."
 
-In her anger, she turned to her spell book for comfort, she landed upon a spell, one that she had been studying for some time. It required casting a spell on a cloak, a very special cloak, a cloak it just do happened that she was been working on for some time.
+"In her anger, she turned to her spell book for comfort, she landed upon a spell, one that she had been studying for some time. It required casting a spell on a cloak, a very special cloak, a cloak it just do happened that she was been working on for some time.""
 
-She spent the rest of the night hastily finishing the cloak. In the morning, she put the cloak on and enchanted it with the spell in the book. Her work done, she followed the trail of destruction that the lord's army left. It led her to her old village.
+"She spent the rest of the night hastily finishing the cloak. In the morning, she put the cloak on and enchanted it with the spell in the book. Her work done, she followed the trail of destruction that the lord's army left. It led her to her old village."
 
-As she entered the village, she could not comprehend the destruction. Griselda, along with her fellow villagers, had lived an isolated and relatively peaceful life. They tithed to a lord who sent representatives to collect was was due to him, but otherwise were left alone.
+"As she entered the village, she could not comprehend the destruction. Griselda, along with her fellow villagers, had lived an isolated and relatively peaceful life. They tithed to a lord who sent representatives to collect was was due to him, but otherwise were left alone."
 
-So Griselda had not seen a battlefield, and the village looked like a battlefield now. Every where she looked was death and destruction. She walked through the village, taking it all in, but not just with her eyes.
+"So Griselda had not seen a battlefield, and the village looked like a battlefield now. Every where she looked was death and destruction. She walked through the village, taking it all in, but not just with her eyes."
 
-She didn't realize it at first, but the enchanted cloak had come alive and was watching and remembering as well. For you see the cloak she had created was embroided with eyes, hundreds of eyes, looking in all directions. The cloak would grant the wearer the ability to see and remember all that crossed its path.
+"She didn't realize it at first, but the enchanted cloak had come alive and was watching and remembering as well. For you see the cloak she had created was embroided with eyes, hundreds of eyes, looking in all directions. The cloak would grant the wearer the ability to see and remember all that crossed its path."
 
-Griselda finally caught up with the army, wearing her cloak, and recording incredible scenes of destruction and havoc. The eyes on the cloak were wide open, and observing everything. When the lord's army saw Griselda and her cloak, they took this to a be a bad omen, a portent of their impending destruction. The lord's army fell apart as soldiers deserted, slaves escaped, and the will to fight and destroy left them as well.
+"Griselda finally caught up with the army, wearing her cloak, and recording incredible scenes of destruction and havoc. The eyes on the cloak were wide open, and observing everything. When the lord's army saw Griselda and her cloak, they took this to a be a bad omen, a portent of their impending destruction. The lord's army fell apart as soldiers deserted, slaves escaped, and the will to fight and destroy left them as well."
 
 "That is the story of Griselda's cloak," Avalon concluded.
 
@@ -980,8 +980,26 @@ Griselda finally caught up with the army, wearing her cloak, and recording incre
 
 "Yes, many children across the kingdom hear some version of it. You may or may not hear the name Griselda. The story's location may change. The story may not reference the cloak, but I have told it as truly as I know how."
 
-"But, Avalon, what does this story have to do with anything?"
+"You've never told me that story before," the princess said. "Why?"
+
+"I don't know. Perhaps it felt like it would reveal too much about myself. Perhaps I didn't want to tell it for that reason. Besides, you always seemed to enjoy stories about the world as it is today much more."
+
+The princess considered this and decided it was probably true. She replid, "If this story took place so long ago, then what does this it have to do with anything?"
 
 Avalon stood up, crossed her room and stopped before a large wardrobe. She opened the door and removed something, draping it over her arm. It was too dark to tell at first what it was. But Avalon walked back closer to her, closer to the lamp light, but she stopped several arms length away.
 
 "It has everything to do with me, and with this. This is Griselda's cloak and I am its current wearer."
+
+"So you are Griselda now?"
+
+"In a manner of speaking, yes. I'm Avalon, of course, but that wasn't always my name."
+
+"What is your name?"
+
+"I don't recall. I remember so much. I see so much and yet I don't recall my real name. Everyone who wears this cloak is given a name. You are not the same person once you being to wear it. The things you do and see are no longer your own."
+
+"Then who do they belong to?"
+
+"The King. The priests. The people. All of them to some degree. So much of what we share, the stories we tell, come from the things I've seen, and others before me, have seen while wearing this cloak."
+
+Avalon paused. She studied the cloak for a moment, then returned it to the wardrobe. "But my time wearing it is coming to an end."
