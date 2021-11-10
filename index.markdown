@@ -816,16 +816,172 @@ She wandered outside into the crisp evening air. As she stumbled around the grou
 
 He must have known that she wouldn't take the news well, and tried to blunt the impact by staging this scene. She always assumed that her father was  too interested in the the business of being a king, or or his unusual pursuits, like cultivating flowers, to care much for crafting elaborate facades like this. She thought that he was as he appeared to be, slightly removed from daily life, the Diving King.
 
-She tried to imagine never seeing Avalon again, and a chill rippled up through her body, causing her to skip a step and stop where she was. She wanted to start sobbing, ugly tears that her mother wouldn't approve of, but didn't. She just trembeled with cold and range, stood in place, staring up at the darkening night sky.
+She tried to imagine never seeing Avalon again, and a chill rippled up through her body, causing her to skip a step and stop where she was. She wanted to start sobbing, ugly tears that her mother wouldn't approve of, but didn't. She just trembled with cold and range, stood in place, staring up at the darkening night sky.
 
 As she stood there, she heard a faint coughing sound in the distance. She realized it was coming from the orchard and wondered if it was the boy still there working off the effects of eating so many rotten apples. Maybe he still needed help. Maybe there was something she could do to correct something, even a little thing, when everything felt off kilter and broken inside her right now.
 
-She crept carefully towards the orchard. Thankfully, she didn't see any priests statitioned around the orchard keeping watch, so she proceeded quiety towards the spot where she had last seen the boy.
+She crept carefully towards the orchard. Thankfully, she didn't see any priests stationed around the orchard keeping watch, so she proceeded quietly towards the spot where she had last seen the boy.
 
 In that same space in the middle of the orchard, now flooded with moonlight, she found him sitting, propping himself up agains the rocks. His head flailed from side to side and he kept his knees pressed up tight against his stomach.
 
-She gathered up her gown around her and knelt down, carefully to do so on the opposite side of where he obviosuly had been throwing up earlier. She reached out a hestitant hand and rested it on his shoulder.
+She gathered up her gown around her and knelt down, carefully to do so on the opposite side of where he obviously had been throwing up earlier. She reached out a hesitant hand and rested it on his shoulder.
 
 He didn't acknowledge her at first, so she gave his shoulder a little shake. "Are you okay?" she asked.
 
 The boy looked at her from the corner of his eyes, and rested his head on his arms, crossed over his knees. "You shouldn't be here," was his only reply.
+
+"It's okay. I want to be sure you're okay. I feel terrible that I didn't come find you sooner."
+
+The boy looked up at her. His thin face seemed darker, more ghostly in the moonlight. She could hardly imagine the vibrant boy who had picniced with her just days before.
+
+She scooted herself next to him, rested her back against the stones where he sat. The boy rested is head on her shoulder. She almost refused the gesture; it was so ingrained in her that common people, probably even priests, weren't to lay hands on her in this way. But as they sat there, she could feel the anger and angst that was gurgling inside her settle. She felt almost at peace, for a moment.
+
+The boy started to whimper, moan, like his stomach was hurting again. He muttered out, "It's terrible. So terrible."
+
+"I know. They shouldn't have punished you at all. I don't understand..."
+
+The boy sat upright, his eyes wide like some kind of urgent spirit possessed him. He looked straight in her eyes, "No, not that. The rituals. What we did, what we do. As priests. I couldn't bear it. It was awful. I never want to do it again. I wish I wasn't a priest."
+
+"Then don't be," the princess said, mustering bravery for someone else. "Leave, run away. I can gather supplies for you. You won't go hungry."
+
+The boy stood up now, as if he was taking her advice. "No you don't understand. How can I make you see." When he said that word, he shuddered, seemed on the verge of being sick again. "I am marked down. I am a priest for life. There is no escape. Besides, I would shame my family. It wouldn't be fair to them."
+
+Now the princess was standing too. She gripped by him the shoulders, "But how can a child, a boy bear so much? How can they ask you do that?"
+
+The boy shrugged, "I don't know. They did though. And I'm here. And now I can't unsee what I've seen." He looked down at his hands, "Can't undo what I've done."
+
+The princess turned away, wanting to march off and leave this frustrating conversation behind her, leave everything behind her. She took a few steps and said, "I'm so tired. I just want to see Avalon and feel better. She always makes me feel better."
+
+"Avalon? Did you say Avalon? How do you know Avalon?" the boy said, a new urgency in his voice.
+
+"I've...I guess I've always know her, as long as I can remember. She is my fried, my companion. She is...my everything."
+
+"She's a monster and what she does it monstrous. And I am a part of it now. I can't believe this. I can't believe you are friends with her."
+
+"Avalon is not a monster. That's a terrible thing to say. Take it back."
+
+The boy stepped towards her. He was smaller than her, but tried to assert himself, "You musn't see her anymore. You don't understand how terrible it all is."
+
+"What? Why won't anyone tell me. I don't understand."
+
+The boy looked possessed again, "Then you've never seen the eyes. No,  you haven't. You could't have. Otherwise you would know."
+
+"I've seen Avalon's eyes. They're grey and soft like pearls."
+
+"Not those eyes. Not them." The boy looked over his shoulder. "Quiet, she's here. We must go."
+
+He started to dash away. She tried to reach out for him, to catch him before he ran away in this feverish state. He must be sick and its affecting his mind, she thought. What other explanation was there for it?
+
+The boy escaped her easily, and disappeared into the orchard and the dark tree cover. Soon, she had no sense of where he was going. But she knew he was right that someone was approaching, but must have retreated. Had Avalon overheard their conversation? What horrible things she might have heard them saying?
+
+The princess struck out into the night to try to find the figure, hoping, wishing that it was in fact Avalon who was out walking on a night like this. It wouldn't have been unheard of for her to do such a thing.
+
+In her wanderings, she approached the hothouse again. She went inside, thinking she had seen a figure inside, a slip of a shadow, maybe nothing more.
+
+She paced up and down a few rows of flowers. Then she saw before her, as if appearing out of nowhere, Avalon approaching her. She moved silently and slowly towards her, seeming to walk more like an apparition than a person. She seemed to communicate so much sadness in just the way she walked.
+
+"Princess? What are you doing out so late?" Avalon asked her.
+
+The princess rushed forward, propelled by relief, and wrapped Avalon up in her arms. She didn't notice at first how frail and thin the body she embraced was. But Avalon seemed to falter under the pressure of her arms, the weight of the emotion surging from her.
+
+The princess her her go and started talking quickly, "Avalon! I'm so happy to see you. They wouldn't let me see you. My father said I could never see you. And there was a boy, he turned out to be a priest..."
+
+"Slow down, princess. We have time. Some time to catch up. But we can't talk here, it is too dangerous. Can you come to my room at the stroke of midnight?"
+
+"Sneak out of my room?"
+
+"Yes, it's the only way."
+
+"I can do that," the princess replied.
+
+"Good, perhaps this will help settle everything," was Avalon's cryptic response.
+
+They walked back out into the gardens, then parted company at a long path lined with trees. Avalon walked down the long path until it veered out of site. Surely she had some way to creep back into the house.
+
+The princess turned back to the house too, retracing the rounding way she got here. She went directly to her room and told her maid curtly that she wasn't feeling well when the maid tried to stop her in the long hall before her room.
+
+***
+
+"You looked beautiful tonight," Avalon said after they had both settled on a cushioned seat at the window. The princess could feel cold air coming in through the small gaps in the glass panes. She felt chilled at first, but shrugged it off.
+
+The princess looked down at her nightgown, half expecting to be still wearing her fancy dress. Even now, the ball and the dancing and the fine gown seemed very far away. She almost had forgotten that she was dressed in a fine dress, forgotten that she was traipsing around outside in the folds and ribbons and ruching. She hoped that the dress wasn't ruined, but pushed the thought out of her mind.
+
+She look up at Avalon, who was still a head taller than her, even when sitting. "I want to know everything. I want to hear everything. Where have you been? Tell me your stories."
+
+Avalon smiled a distant, sweet smile, a vacant smile that the princess was not used to seeing. She was used to Avalon being very present, very much there before her. But tonight she seemed far away, tired. Very tired.
+
+"Everything? I don't think we have time for everything," Avalon replied, a gently laugh dancing across her soft melodic voice. "And maybe not times for stories either."
+
+"No stories?"
+
+"Maybe not tonight."
+
+"Avalon," the princess asked, her tone changed to a more hesistant one, "is everything okay."
+
+Avalon's long fingers embraced her cheeks and she said to the princess pointedly, "Everything is as it should be."
+
+"Then why do you seem do different. Not like yourself."
+
+"That is what I want to talk to you about."
+
+"I want to know everything."
+
+"Princess, if I could tell you everything, I would. I shouldn't be telling you what I'm about to say. I shouldn't even be out right now."
+
+"It's those priests, isn't it. Are they hurting you?"
+
+"No, no princess. They are performing their duty. Just as I am performing mine. It's a duty that I have carried out for a long time, since you were just a baby, and now my time to carry out that duy is coming to an end."
+
+The princess considered this piece of information, turned it around in her thoughts, "I don't understand."
+
+"I know you don't, dear princess. I don't want you to understand. I want you to stay just I remember you. I want to remember our days together for ever."
+
+"Please, Avalon. I'm not a child. Stop speaking to me like I'm a child. I want to understand. I deserve to understand. Everyone keeps talking about duties and ceremonys and sacred codes. Everyone seemes to be tied up in things they eithet don't understand or are too big for them to even talk about. I'm tired of it. I just want to know."
+
+Avalon looked at her intently, "You are right, princess. You are not a child anymore. I find myself forgetting the fact. You're growing up quickly. I feel that I have missed it, that it slipped past me."
+
+"But I'm here now."
+
+"Yes, that is true." Avalon stopped and looked out into blank dark window. "Maybe there is time for one more story. Have I told the story of Griselda?"
+
+"I don't think so."
+
+"Fine then. This is the story of Griselda:"
+
+Griselda was a woman who had lived many, many years ago in a small mountain village. She was a hearty woman and outlived her relatives, including her husband and her children. She became increasingly difficult to live with, so the villagers forced her to move further down the mountain.
+
+At this point, Griselda was tired of the villagers and their small complaints. So she was happy to move. She took her chickens and goats with her and found a new place to settle. In fact, she found an old tatched hut that had been adanboned. It seemed for a long time, because evertyhing needed cleaning and repairing. But Griselda had nothing but time, so she set to work."
+
+Many years passed and the villagers had nearly forgotten about Griselda. Some of the villager elders would recount some argument she had gotten into a local magistrate or some other exploit that confirmed for everyone, even those that could hardly remember her, that they were better off with her out of their lives.
+
+In those year, Griselda didn't think much time about the villagers either. Instead, she had become preoccupied with a book that she found hidden in the thatched hut, buried under the dirt floor. She happened upon it one day when she was removing old leaves and straw to place new straw on the floor.
+
+The book was full of strange writings and symbols. It was a book of magic. Griselda, like many of us, didn't believe in magic, but she was interested in this book. It appealed to her that, in her solitude, she should come to understand and master secret knowledge that would set her apart form others, particuarly the nasty villagers who had driven her from her home.
+
+Little did Griselda, or the nasty villagers know, but this was a time of war in the land. The kingdom did not exist and lords battled with each other for territory. There was terrible battles in those times. Sometimes whole villages would be burned to the ground, their inhabitant impressed into the service of the conquering lord.
+
+Such an army was making it way to the mountains, to Griselda's hut and her former village. She was the first to be introduced to this particular lord and his soldiers. They stormed into her hut in the night, seized her animals and the meager stores of food she kept, and continued on their way.
+
+In her anger, she turned to her spell book for comfort, she landed upon a spell, one that she had been studying for some time. It required casting a spell on a cloak, a very special cloak, a cloak it just do happened that she was been working on for some time.
+
+She spent the rest of the night hastily finishing the cloak. In the morning, she put the cloak on and enchanted it with the spell in the book. Her work done, she followed the trail of destruction that the lord's army left. It led her to her old village.
+
+As she entered the village, she could not comprehend the destruction. Griselda, along with her fellow villagers, had lived an isolated and relatively peaceful life. They tithed to a lord who sent representatives to collect was was due to him, but otherwise were left alone.
+
+So Griselda had not seen a battlefield, and the village looked like a battlefield now. Every where she looked was death and destruction. She walked through the village, taking it all in, but not just with her eyes.
+
+She didn't realize it at first, but the enchanted cloak had come alive and was watching and remembering as well. For you see the cloak she had created was embroided with eyes, hundreds of eyes, looking in all directions. The cloak would grant the wearer the ability to see and remember all that crossed its path.
+
+Griselda finally caught up with the army, wearing her cloak, and recording incredible scenes of destruction and havoc. The eyes on the cloak were wide open, and observing everything. When the lord's army saw Griselda and her cloak, they took this to a be a bad omen, a portent of their impending destruction. The lord's army fell apart as soldiers deserted, slaves escaped, and the will to fight and destroy left them as well.
+
+"That is the story of Griselda's cloak," Avalon concluded.
+
+"That story seems familiar, but I'm not sure," the princess said.
+
+"Yes, many children across the kingdom hear some version of it. You may or may not hear the name Griselda. The story's location may change. The story may not reference the cloak, but I have told it as truly as I know how."
+
+"But, Avalon, what does this story have to do with anything?"
+
+Avalon stood up, crossed her room and stopped before a large wardrobe. She opened the door and removed something, draping it over her arm. It was too dark to tell at first what it was. But Avalon walked back closer to her, closer to the lamp light, but she stopped several arms length away.
+
+"It has everything to do with me, and with this. This is Griselda's cloak and I am its current wearer."
