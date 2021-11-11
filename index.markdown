@@ -1000,6 +1000,82 @@ Avalon stood up, crossed her room and stopped before a large wardrobe. She opene
 
 "Then who do they belong to?"
 
-"The King. The priests. The people. All of them to some degree. So much of what we share, the stories we tell, come from the things I've seen, and others before me, have seen while wearing this cloak."
+"The King. The priests. The people. All of them to some degree. So much of what we share, the stories we tell, come from the things I've seen, and others before me, have seen while wearing this cloak." Avalon paused. She studied the cloak for a moment, then returned it to the wardrobe. "But my time wearing it is coming to an end. And soon I must leave."
 
-Avalon paused. She studied the cloak for a moment, then returned it to the wardrobe. "But my time wearing it is coming to an end."
+"Leave? Why? Where? For how long?"
+
+"Forver, princess. I must leave forever. I have reached the point in my journey, in my time with the cloak when I must leave."
+
+"Avalon, I don't understand."
+
+Avalon sat again on the window seat. As she did, the princess noticed how frail Avalon seemed. Her face seemed older now, her eyes less vibrant. When she sat, she wrapped her arms around herself, as if keeping out cold, but did so gingerly, as if not resisting her own touch.
+
+"Griselda, did not realize when she cast that spell that it contained a curse hidden inside its words, buried among the letters and sounds. When she cast that spell, she also cast the curse. And the curse she cast wasn't on own self, it was cast on the cloak and it resides in the cloak."
+
+"So you have been cursed too?"
+
+"Yes, from the moment I first wore the cloak, the cursed passed to me, just as it passed to all the women who wore it before me."
+
+"Can't you reverse it? Or..." the princess's mind raced through possibilties, "if you stop wearing it now and destory it, will the curse be broken."
+
+Avalon replied, resignation tinged in her voice, "There are stories, only known among the women who wear the cloak, stories I cannot share in great detail, of previous weaers having tried all of those things. Even unspeakable things, some of which led to the wearer taking her own life."
+
+"That's terrible. Didn't you know this when you put the cloak on? Why didn't refuse."
+
+"Becuase when you are asked, you don't refuse. That is how the cloak is passed down, how it always has been."
+
+"Asked? Then you had a choice?"
+
+"Princess, no there was a no choice. I was asked and I wore the cloak."
+
+"Who asked you?"
+
+"The king, of course. The wearer serves the king or queen, who rules this land. That is why I live here, housed and protected by the King. I wear the cloak because the King asked and to be asked is to not refuse."
+
+The princess's mind was swirling with even more thoughts, suddenly her family, her story, was bound up in this terrible thing happened to the person she loved most dearly in the world. How could this be? What could she do? She got up and started towards the door, "I will wake my father up at once and demand that he release you from this bond. Demand that you be allowed to stay. Please stay, Avalon."
+
+Avalon stood too and approached the princess, embracing her in a warm hug. The princess drew away quickly because she could tell that Avalon was wincing with pain. "You're hurt. What's wrong."
+
+"It's the curse. I bear it with me always. It has gotten worse too."
+
+"Let me see, I need to see," the princess replied.
+
+Avalon hesitated, but then she shifted a sleeve from her gown down off her shoulder, revealing frail looking skin and bones, but skin covered in something, like sores or bruises. The princess stepped forward to see better. No, not bruises, eyes. Her skin was covered in eyes like those on the cloak, eyes that were blinking and moving and searching. Eyes that were remembering, even now, even in this moment, recording.
+
+The princess recoiled, thinking of the boy and his terrified cry that Avalon was a monster. She couldn't think of her as being a monster, never could do that, but understood now how that energetic boy and had been consumed by visions of eyes.
+
+"Your skin..." the princess said, as if just making words for their own sake.
+
+"Yes, you understand the curse now. The cloak granted its wearer with the ability to see and rememeber. And the priests learned how to extract those stories so they could be saved and shared. But eventually the wearer would not be able to escape the impossible burden of seeing so much."
+
+Exhauseted already, Avalon sat in a nearby chair. "At first the priests could keep the eyes from spreading, were able to harvest their visions, but the eyes grew too numerous and resistant to their rituals. And now, I can no longer bear it, I can no longer bear witness to anything more. So I must retire and disappear from this world."
+
+"Where will you go?"
+
+"There is an island in the sea, the tide carries the sea there. It is our retreat, our refuge when this moments occurs."
+
+"You've been there?"
+
+"No, but I am aware. I have seen the memories. In fact, I have experienced all of the departures. Some were pleasant memories, others I would never want to revist."
+
+"When do you leave?"
+
+"Tomorrow, princess. We leave for the coast in the morning. And set sail the next day. Preparations are already being made."
+
+"And then you will be gone."
+
+"Yes, I will fade away into the memories and stories."
+
+"And there will be another like you?"
+
+"Yes, that is the custom. Another like me. And then after that and it will continue on."
+
+"Aren't you angry? Aren't you upset."
+
+"Why, princess? I was chosen to perform a duty, a most important duty that few are called to do. I spent much of my life witnessing the more important deeds of this age, meeting the most important people. Meeting people like you, like your governess... Of course, I haven't forgotten her. But then again, I forget so little."
+
+They both sat silently until Avalon said in a near whisper, "I'm afraid that I have used what little energy I have. I know I have shared so much with you. More than I should have. More than I was able ever to do. But I must go to bed, and you must return to your room before you are discovered. This may be our last momemnt together, princess. My only regret is that I will have no memories of the person you will become. I has hoped for so long that I would get to meet that person eventually."
+
+***
+
+mother comes to room in morning, princess can travel with the, but it's awkward
