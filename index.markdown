@@ -902,7 +902,7 @@ The princess turned back to the house too, retracing the rounding way she got he
 
 ***
 
-"You looked beautiful tonight," Avalon said after they had both settled on a cushioned seat at the window. The princess could feel cold air coming in through the small gaps in the glass panes. She felt chilled at first, but shrugged it off.
+"You looked so grown up in your gown tonight," Avalon said after they had both settled on a cushioned seat at the window. The princess could feel cold air coming in through the small gaps in the glass panes. She felt chilled at first, but shrugged it off. "I wished I had been able to see you at the ball."
 
 The princess looked down at her nightgown, half expecting to be still wearing her fancy dress. Even now, the ball and the dancing and the fine gown seemed very far away. She almost had forgotten that she was dressed in a fine dress, forgotten that she was traipsing around outside in the folds and ribbons and ruching. She hoped that the dress wasn't ruined, but pushed the thought out of her mind.
 
@@ -1074,8 +1074,60 @@ Exhauseted already, Avalon sat in a nearby chair. "At first the priests could ke
 
 "Why, princess? I was chosen to perform a duty, a most important duty that few are called to do. I spent much of my life witnessing the more important deeds of this age, meeting the most important people. Meeting people like you, like your governess... Of course, I haven't forgotten her. But then again, I forget so little."
 
-They both sat silently until Avalon said in a near whisper, "I'm afraid that I have used what little energy I have. I know I have shared so much with you. More than I should have. More than I was able ever to do. But I must go to bed, and you must return to your room before you are discovered. This may be our last momemnt together, princess. My only regret is that I will have no memories of the person you will become. I has hoped for so long that I would get to meet that person eventually."
+They both sat silently until Avalon said in a near whisper, "I'm afraid that I have used what little energy I have. I know I have shared so much with you. More than I should have. More than I was able ever to do. But I must go to bed, and you must return to your room before you are discovered. This may be our last moment together, princess. My only regret is that I will have no memories of the person you will become. I has hoped for so long that I would get to meet that person eventually."
 
 ***
 
-mother comes to room in morning, princess can travel with the, but it's awkward
+When the princess awoke the next morning, her mother was in her room. Not sweeping through and making pronouncements. She was sitting on the edge of the princess' bed. The princess sat up and said in a sleepy voice, "Mother?"
+
+"You're awake. Good."
+
+"Why are you here?"
+
+"I want you to get dressed. There is somewhere important you need to be."
+
+"Where do I need to be?"
+
+Her mother looked at her. The princess was surprised by how tired and careworn her mother's eyes seemed to be. "Avalon is leaving. She is leaving this morning. Your father told me earlier."
+
+"I know..."
+
+"Of course. Well, she is leaving, and I convinced your father to let you see her off. He didn't want to allow it. But I insisted." They sat in silence for a moment.
+
+"Mother, are you crying?"
+
+"I..I don't know, dear. I suppose I should never have let you get so attached to Avalon. Somehow it made being sequestered away in this house and this estate easier to bear. I don't know why. I knew that she would have to leave eventually."
+
+"Do you know why?"
+
+Her mother shook her head, "Not fully, but I have my suspicions. The priests are very secretive, and your father doesn't share much. I know that it is an honor and privilege to have Avalon in our lives. But now that time has come to an end."
+
+The princess inched forward to her mother and laid her head on her shoulder. Her mother had always acted more like the Queen who happened to her mother, than the other way around. Her care, and this moment of affection, was unsual, seemed to come out of nowhere. But the princess welcomed it. So many things were changing, but for a moment she felt a sense of comfort and relief.
+
+ Her mother wiped her eyes dry with a handkerchief. "I've already laid out your things. You'll be wearing sturdy boots and your heavy winter cloak. It's cold this morning. And we're traveling to the coast, where it is even colder."
+
+Once she was dressed, the princess went downstairs to the front of the house. Outside, a three carriages were ready and waiting for thier passengers. The horses' breath rolled in clouds in the cold air.
+
+She saw that her father and the High Priest were sitting in the first carriage. The High Priest caught her eye and nodded at her, even as he wore a look of disapproval on his face.
+
+She was motioned to the last carriage by one of the footmen. Her mother was sitting in there already, wrapped up in a fur lined cloak.
+
+They waited until Avalon appeared walked through the front door. Somehow she seemed even more frail in the day light. She walked slowly, with two priests behind her. A footman helped her up into the middle carraige and the priests joined them.
+
+They traveled most of the day to reach the coast. The princess hardly took in the farms and small villages they passed through. Finally, she could see a tower standing on the shoreline and assumed that was their destination.
+
+The tower sat on the edge of the cliffs overlooking the sea. The towerkeeper and a few sailers waited for them at the base of the tower then led them down the stop steps in the cliff face to the beach.
+
+The beach was rocky and littered with green stones. Just as her mother had said, the wind blew in bursts and gusts, whipping her cloak and dress in hollowed out shapes against her body.
+
+Once on the beach, they headed towards a dock that had been built out in to the water. The dock was old. The wood faded gray, with green coloring in places. A small sailboat was docked there waiting for them. There was another sailor on the boat, making preparations to leave.
+
+The princess walked at the back of the party with her mother. The party stopped well before the dock. The priests and Avalon continued on to the dock with her father and the high priests. The princess started to join them, but her mother held her back, "You must stay here, darling." Her mother said softly, so softly that the princess almost didn't hear her over the wind and crashing waves.
+
+The priests helped Avalon on to the boat. They seemed to be reciting something and making gestures as they sat on the boat before her. Finally, Avalon sat down, keeping her out of the princess's view entirely. The High Priest nodded to the two other priests, and they sat down as well.
+
+Two of the sailors united the boat and pushed it into the tide, before jumping on themselves. The princess saw oars appear at the sides of the boat to take them further out, clear of the tide.
+
+She stood on the shoreline, quiet, watching Avalon be taken away. It seemed more like going in to exile, than some kind of retirement. But maybe that was exactly the point. Maybe Avalon was going in to exile.
+
+The wind continued to howl and whip at her, chaffing her skin. She tried to pull her hood more tighly over her head, but it blew off again. She watched as the ship faded into the horizon, nothing more than a small being carried on the tide, with only one way to go, to take Avalon to her final resting place.
