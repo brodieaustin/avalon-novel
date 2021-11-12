@@ -1102,7 +1102,7 @@ Her mother looked at her. The princess was surprised by how tired and careworn h
 
 Her mother shook her head, "Not fully, but I have my suspicions. The priests are very secretive, and your father doesn't share much. I know that it is an honor and privilege to have Avalon in our lives. But now that time has come to an end."
 
-The princess inched forward to her mother and laid her head on her shoulder. Her mother had always acted more like the Queen who happened to her mother, than the other way around. Her care, and this moment of affection, was unsual, seemed to come out of nowhere. But the princess welcomed it. So many things were changing, but for a moment she felt a sense of comfort and relief.
+The princess inched forward to her mother and laid her head on her shoulder. Her mother had always acted more like the Queen who happened to her mother, than the other way around. Her care, and this moment of affection, was unusual, seemed to come out of nowhere. But the princess welcomed it. So many things were changing, but for a moment she felt a sense of comfort and relief.
 
  Her mother wiped her eyes dry with a handkerchief. "I've already laid out your things. You'll be wearing sturdy boots and your heavy winter cloak. It's cold this morning. And we're traveling to the coast, where it is even colder."
 
@@ -1112,11 +1112,11 @@ She saw that her father and the High Priest were sitting in the first carriage. 
 
 She was motioned to the last carriage by one of the footmen. Her mother was sitting in there already, wrapped up in a fur lined cloak.
 
-They waited until Avalon appeared walked through the front door. Somehow she seemed even more frail in the day light. She walked slowly, with two priests behind her. A footman helped her up into the middle carraige and the priests joined them.
+They waited until Avalon appeared walked through the front door. Somehow she seemed even more frail in the day light. She walked slowly, with two priests behind her. A footman helped her up into the middle carriage and the priests joined them.
 
 They traveled most of the day to reach the coast. The princess hardly took in the farms and small villages they passed through. Finally, she could see a tower standing on the shoreline and assumed that was their destination.
 
-The tower sat on the edge of the cliffs overlooking the sea. The towerkeeper and a few sailers waited for them at the base of the tower then led them down the stop steps in the cliff face to the beach.
+The tower sat on the edge of the cliffs overlooking the sea. The tower keeper and a few sailers waited for them at the base of the tower then led them down the stop steps in the cliff face to the beach.
 
 The beach was rocky and littered with green stones. Just as her mother had said, the wind blew in bursts and gusts, whipping her cloak and dress in hollowed out shapes against her body.
 
@@ -1128,6 +1128,46 @@ The priests helped Avalon on to the boat. They seemed to be reciting something a
 
 Two of the sailors united the boat and pushed it into the tide, before jumping on themselves. The princess saw oars appear at the sides of the boat to take them further out, clear of the tide.
 
-She stood on the shoreline, quiet, watching Avalon be taken away. It seemed more like going in to exile, than some kind of retirement. But maybe that was exactly the point. Maybe Avalon was going in to exile.
+She stood on the shoreline, quiet, watching Avalon be taken away. It seemed more like going in to exile than some kind of retirement. But maybe that was exactly the point. Maybe Avalon was going in to exile.
 
 The wind continued to howl and whip at her, chaffing her skin. She tried to pull her hood more tighly over her head, but it blew off again. She watched as the ship faded into the horizon, nothing more than a small being carried on the tide, with only one way to go, to take Avalon to her final resting place.
+
+# Chapter 4: India #
+
+The Queen walked the line of young woman standing before her. They seemed like children to her, even though there were maybe fifteen years or so separating her from the oldest of them. These young woman represented different parts of the kingdom, different stations. Some were bareboned and hungry looking. Some wore the bored expression of someone who hasn't known hardship and difficulty.
+
+The Queen did not know what she was looking for, what quality was she meant to detect in one of these candidates. She also found herself trying to imagine what this ceremony must have been like in the past, when her father walked the same line. What had he seen in the canddiates he choose?
+
+One of her advisers, who had also served her father later in his life, trailed behind the queen. The old man twittered with little sounds of approval or disapproval depending on the woman. The Queen felt a pang of despair that this process was pointless.
+
+Nevertheless, the adviser leaned towards her and whispered, "Your majesty, have you come to a decisions?"
+
+She had not come to a decision. Perhaps she didn't want to come to a decision because she knew very well what this decision meant for her, for the candidate. Nevertheless, it was her duty to make this decision. So much depended upon it, or so the many people whispering in her ear beforehand told her.
+
+She ignored the adviser, swept around and walked the line again. She stopped in front of one of the candidates, one of the youngest, just as the young woman was trying to furtively wipe her nose. The Queen looked at her. The young woman looked down, probably as she had been instructed to do.
+
+"What is your name?"
+
+"India, your highness."
+
+"That is a pretty name. Are you not well?"
+
+"No...yes..your majesty. I don't know. The air here is much differnet than my home."
+
+"Yes, I suppose it is."
+
+"Would you like to be selected, child?"
+
+The young woman, India, was silent. The woman behind her, a mother or grandmother, nudged the girl and hissed, "Answer the queen."
+
+"Yes, your highness."
+
+"India, look at me." She looked at the queen. "Tell me how you really feel."
+
+"I'm terrified your highness."
+
+"Of me?"
+
+India looked around the lavish room they stood in. "Of everything...but I will do my duty, queen. I diligent and will get something done when I put my mind to it."
+
+"Good. Thank you for your honesty." The queen turned to her advisors and attendants standing opposite the line of women. "Tell the priests, this is my candidate."
