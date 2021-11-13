@@ -1171,3 +1171,109 @@ The young woman, India, was silent. The woman behind her, a mother or grandmothe
 India looked around the lavish room they stood in. "Of everything...but I will do my duty, queen. I diligent and will get something done when I put my mind to it."
 
 "Good. Thank you for your honesty." The queen turned to her advisors and attendants standing opposite the line of women. "Tell the priests, this is my candidate."
+
+The Queen turned and left the room, her advisers and attendants falling in line behind her. The senior adviser, the one who had been following her closely and whispering in her ear, hastened to catch up with her. "Your majesty, your majesty," he called after her.
+
+The Queen stopped, closed her eyes and took a deep breath. The adviser was a nuisance she had to tolerate, just one of many things she had to tolerate in her new role. Her ascendancy to the throne had not been easy, no less because of this adviser and his scheming. But she knew he was a necessary evil; he was very connected to many of the most powerful houses.
+
+She wanted this decision, the choice of new person to the wear the robes, to keep the kingdom's stories and memories, to be her own. Obviously this was not to be. She had to suffer the opinions of the fools around her, the remnants of her father's court.
+
+"Yes, what is it?" she replied. She turned to the adviser, "I have made my decision. I made it clear."
+
+"Of course your majesty, very clear. But before we forward your candidate to the priests, might I suggest that we consider all points of view."
+
+"What are these points of view? I was given a group of young women to chose from. I chose one. Is there something lacking in my discernemnt or discretion?"
+
+"No, not lacking. I would never imply such a thing..." The adviser's paused. "I would suggest you consider how this choice might affect other aspects of life in the kingdom."
+
+"Such as?"
+
+"This is an important choice. The candidate will take on a very important place in your court, in the kingdom. Perhaps there is another candidate to consider, one who might represent the interests of the kingdom better."
+
+As the spoke, the other advisers and attednants were crowded in the hallway behind them, maintaing a respectful distance, but clearly within earshot of this debate between the monarch and her adviser. She saw them loitering over his shoulder and did not want to continue playing out this scene with an audience.
+
+The Queen waved forth one of her attendants. As the attendnant approached, the adviser seemed to grimace in frustration. "Yes, my lady?"
+
+"Please draw a scalding hot bath. I am in need of a soak before I attend to more of the day's business. See to it that I am disturbed."
+
+"Yes my lady." The attendant continued down the hall, then disappeared up a flight of steps to another wing of the Queen's house.
+
+The queen turned to the adviser, "We will continue this conversation later, in my study. Behind closed doors."
+
+The adviser bowed his head, "As you wish your highness."
+
+The adviser motioned forward the coterie of adviser, his lackeys and cronies, and left the Queen with hers there in the hallway.
+
+***
+
+After her bath, the Queen stood wrapped tightly in a dressing gown at the window in her room. The window overlooked a bustling street in the town where she had moved her residence upon her coronation. She had inwardly proclaimed to herself, "I will not be a monarch in exile." which was another way of saying that she would not be like her father.
+
+The captain of the Queen's Guard had cautioned her against this decision, at least asked her to take up residence in the fortified tower that had been part of the old walled city. "I will not be set in stone behind thick walls," she said, nearly stomping her feet in frustration. She had learned to quell these gestures and outbursts early on. She could always see the smirks that crossed faces around her when she acted out her frustration this way.
+
+She was not a young woman when she was crowned, but still young enough to not be considered a suitable replacement for her father. She was, after all, the first female heir to the throne in many, many generations.
+
+Instead, she chose to situate herself in the midst of the bustling modern part of the city, the part that had swallowed up and subsumed the old walled part. This sectino of the town, already bustling and vibrant, grew dramatically once word spread about the Queen's new house. Prominent families bought blocks of houses around her. It seemed at first that she was being walled in by these influence seekers and rivals. She grew to accept this, just as she accepted many other aspects of her new life, her new identity.
+
+She still enjoyed being able to look out and see the bustle around her, feel connected to something like the life of this place, of the kingdom. Someone on the street must have noticed her standing there, though, and a crowd began to form in the street. She watched for a moment as the people waved, pointed, wisphered, snickered, and observed her. She basked in the attention momentarily then began to feel self conscious. She waved to the people, then withdrew from the window, just as the Guardsmen began to break up the crowd.
+
+The bell at her dressing table summoned her maids, who dressed their queen for the evening. She had duties to perform in her study, before preparing for a state dinner hosting one of those prominent families that had encroached on this neighborhood.
+
+Once in her study, it was only a matter of minutes before a knock at the door announced her adviser's arrival.
+
+"Yes, enter," she called out, standing to wait for him. A guard opened the door and the adviser crept into the room.
+
+The adviser sat opposite her, but was seized by a coughing fit before he could speak. The Queen waited patiently for this to pass.
+
+"I assume that you want to continue our conversation from before," the Queen started.
+
+"Yes, your majesty."
+
+"And what is your concern. Please say it plainly so that I may understand. I do not like slinking around the matter."
+
+"Of course. I am concerned that some in the kingdom may feel slighted by this decision, your majesty."
+
+"And why is that?"
+
+"This child you chose..."
+
+"India."
+
+"Yes, India. A pretty charming name, for a pretty and charming young lady, no doubt. But she does not come from a prominent family, does not come from a prominent place."
+
+"Then why was she put before me as a candidate."
+
+"Well, as I'm sure you can appreciate, there are considerations there as well. We don't want the lesser houses and lesser regions of the kingdom to feel slighted either."
+
+"So you gather up their young people for this candidacy. Make them travel far and wide, only to be snubbed their Queen. Is that my understanding?"
+
+The adviser smiled, as if trying to smile away the ire that had crept into her voice, "Your majesty is much too ungenerous. Trust me that there are considersations like this at every turn that we must consider. So many delicate threads that must be held in tension together to maintian the fabric of our kingdom."
+
+"You mean my kingdom?"
+
+"Yes, of course your majesty. I only meant..."
+
+"I know what you meant. Your meaning is plain. You think me a fool. You think me as someone to play, to wrap up in your subtle games. Have you made some promise to someone that I am not aware of? Perhaps our guests tonight?"
+
+The adviser shifted in his seat back and forth, seeming to feign being offended, "Your majesty I would never..."
+
+"Please do not treat me like the child you knew when my father was kind. I am not a child. I am aware of how whispers travel through these walls."
+
+As if deciding the shift tactics, the adviser stood and said boldly, "Very well then, yes. You should, no you must select a different candidate, one that will please the lord you are hosting tonight. He is expecting a different outcome and to chose otherwise would greatly displease him."
+
+The queen stood as well. She had not grown into a tall woman, but she held herself upright and said firmly, "At least we understand one another, then. I will consider your words and make my decision. You will be informed once I do. Please see yourself out now."
+
+The adviser bowed and left the room, leaving the queen to pace furiously around the room.
+
+This decision, a decision she didn't even want to make, was becoming burden to her. Perhaps she should give the adviser his victory, let him gloat to his cotery that he had won over the Queen, let the word of his influence spread wide and far. Perhaps it would embolden him to be less furtive about his schemes.
+
+Besides, releasing the child from this burden, would that be such a terrible thing? The Queen knew the fate that was in store for this young woman, at least knew the broad outlines. She knew what had happened to her precious Avalon and still carried the grief from that moment in her life with her, even into her adulthood.
+
+"Let them condem their precious candidate to this fate," the Queen said out loud to herself, a childhood habit she found herself indulging more and more in her lonely life as a monarch.
+
+***
+
+dinner
+
+***
+
+india kills herself
