@@ -1264,16 +1264,72 @@ The queen stood as well. She had not grown into a tall woman, but she held herse
 
 The adviser bowed and left the room, leaving the queen to pace furiously around the room.
 
-This decision, a decision she didn't even want to make, was becoming burden to her. Perhaps she should give the adviser his victory, let him gloat to his cotery that he had won over the Queen, let the word of his influence spread wide and far. Perhaps it would embolden him to be less furtive about his schemes.
+This decision, a decision she didn't even want to make, was becoming burden to her. Perhaps she should give the adviser his victory, let him gloat to his coterie that he had won over the Queen, let the word of his influence spread wide and far. Perhaps it would embolden him to be less furtive about his schemes.
 
 Besides, releasing the child from this burden, would that be such a terrible thing? The Queen knew the fate that was in store for this young woman, at least knew the broad outlines. She knew what had happened to her precious Avalon and still carried the grief from that moment in her life with her, even into her adulthood.
 
-"Let them condem their precious candidate to this fate," the Queen said out loud to herself, a childhood habit she found herself indulging more and more in her lonely life as a monarch.
+"Let them condemn their precious candidate to this fate," the Queen said out loud to herself, a childhood habit she found herself indulging more and more in her lonely life as a monarch.
 
 ***
 
-dinner
+Dinner that night began with a breach of protocol, but first flattery. "Your majesty, you look stunning tonight," the lord said upon seeing her in the receiving line.
+
+"Thank you lord, I trust you were amenable to our negotions in advance of tonight's occassions."
+
+"Mmm, yes, very amenable. I always find a way to make myself amenable." The lord said, with a large number of guests following behind him.
+
+The lord she was hosting was known to have a large entourage of retainers that accompanied him in his social outings. This lord had been warned by her house managers that the Queen would not entertain this large number of guests. In the weeks before the dinner, there had been ongoing negotiations about the number of said guests. Whatever number they had arrived upon, the lord brought more. Her staff had to quickly reset the dinner service for more guests.
+
+The dinner service met her guests approval. Many were surprised and delighted by the unusual dishes they sampled. Each one coming to highly regard the Queen's taste, assured to walk away with the opinion that their yougn Queen was entirely modern and to be respected. Or at least that was the intended effect. Her kitchen staff excelled at her jobs. She had taken care, before she resented the advice hurled at her by her advisors, to retain chefs from different parts of the kingdom, who could "meld the flavors of the land together," as one put it. Her guests tonight, though fashionable and notorious across the kingdom, were, ultimately quite parochial.
+
+She came to this realization herself not long into dinner once she grew bored of the conversation around her. Her few attempts to engage the guests around her in various issues occuring around the kingdom, fell flat. They were able to talk about art up until a point, a topic that the Queen had lately become more interested in, but again found that the knowledge of her guests was ultimatley shallow and, frequently, devolved into gossip. Apparently, the love lives of artists was more interesting than their work.
+
+For her part, the Queen cared little for the intricate lines that crisscrossed and interconnected these people's social lives. Even though her lack of care or concern made her feel somewhat disconnected from these people, she also felt a sense of relief that she did not to muster up any sincere feeling on the topic.
+
+The longer these conversations went on, the more she retreated into her self, explored her own thoughts and observations. On this particular night, this almost reached the point where she could feel that she was observing herself as if she was separate from herself. She could see a Queen sitting in a crowded room of people dressed in their finery, talking, flirting, eating, drinking. And yet her consciousness was nowhere to be found in the scene. It was somewhere else entirely.
+
+For the moment, it settled into scenes from her youth when she might have imagined situations like this. Scenes that ranged from girlish parties she might have thrown for her dolls, having loquacious grown up conversations, or at least what a child imagines grown up conversations to be like, to occassions where she was finally dismissed from the drawing room after a long night so that the adults could continue their conversations or card games.
+
+Of course, situated somewhere in these scenes, was a ghostly faint figure of Avalon, who seemed to float across her memories of her youth like a mist. Sometimes she could scarely remember what Avalon looked like, yet could sense her presence in her memories.
+
+After dinner, the party installed itself in the Queen's parlor, a large space that she had filled with art and musical instruments. One of the guests began strumming on a rare stringed instrument that had been given to her early on in her rule and travelled about the kingdom more. Singing soon followed. Drinks were flowing and the Queen's staff rushed to meet the demands of this voracious host the lord had let into her house.
+
+Amidst all of the noise, she slipped out of the room and paced the main hall. To her surpise, the lord appeared beside her, he turned on his heel, seeming to scan his surroundings, really her surroundings.
+
+"I must say, I approve. Very modern tastes, your majesty," the lord replied.
+
+She looked at him, but said nothing. She had learned, among other lessons, that a monarch need not always reply when spoken to. This suited her disposition well, and had the added benefits of keeping her out of trouble.
+
+"And dinner was equisite. Even I was surprised by a few of the dishes, and I am considered to be very well travel."
+
+Again she said nothing.
+
+"Please give my compliments to the chef and your staff. They have outdone themselves."
+
+"Of course, I would expect nothing less of them. I will be sure that they are made aware of the compliemtn though."
+
+"Thank you your majesty."
+
+She started to return to the parlor, referring to abide in the din in that room than be subjected to the lord's overbearing charms.
+
+"Ah your majesty, since we have this private moment together, I wondered if we might discuss a matter of some importance to me."
+
+"As you wish."
+
+"Excellent, but may I suggest that we take a seat first. I do not discussing state business while standing in such a transitory location. I find that the urge to pace or walk does not lend itself to deep, reflective conversation."
+
+They sat in a nearby alcove on a padded bench. The queen arranged herself on the bench first, leaving as little room as she could for the lord, without being too obvious about the fact.
+
+The lord gingerly sat on the bench's edge, seeming to not give much thought to the arrangement, or suppressing any indication that he did.
+
+"What did you wish to discuss, now that we are sitting in a more amenable spot?" the Queen asked.
+
+"I wished to speak about the selection of the candidate. I have been led to understand that there were some kinks in the process to work out, that perhaps the final decision had not been made. I hoped that you might avail yourself of my council to...expedite the process."
+
+The queen studied the lord momentarily. He wasn't much older than herself, perhaps even younger. His intensity gave him a boyish quality. But there was a hunger and desire for power that undercut the appearance of youthful exuberance. He was, as he fashioned himself, fashionable, perhaps even handsome. He was a notorious bachelor, though it was rumored that he had walked away from at least one engagement. Even she knew that much from dipping her toe in the world of rumor and gossip.
+
+"While I appreciate the guesture and offer, I will not require your assistance in the matter," she finally replied. She coudl see the lord's anger rising, his face growing stern and rigid. He was preparing to do battle with her. Her. His queen. He was going to will his choice to be her choice. It was bold and impertient. She was glad that she had already resolved to undermine this and not provide him the satisfcation of cajoling her to do his bidding. "I completely agree that the candidate your put forward should be the one advanced to the priest."
+
+The lord looked disarmed by this unexpected reply. Perhaps he even looked disappointed. She was sure that forcing her to change her mind would have made an excellent story to share later.
 
 ***
-
-india kills herself
