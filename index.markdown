@@ -1333,3 +1333,31 @@ The queen studied the lord momentarily. He wasn't much older than herself, perha
 The lord looked disarmed by this unexpected reply. Perhaps he even looked disappointed. She was sure that forcing her to change her mind would have made an excellent story to share later.
 
 ***
+
+Despite breaking many of the protocols around attending a function at the Queen's house, the guests did observe a well established rule that when the monarch announces they are retiring for the night, the party is over. As soon as she stood and made this pronouncement, the guests began bowing, making their compliments, and leaving.
+
+When she finally made it back to her chambers, she sat relieved that the night was over, at least that part of it. She knew she had one burdensome task left before the day was truly over. She must deliver the news to the candidate she had chosen, the girl named India, that she would not be the candidate after all.
+
+She thought about how she would broach this topic with this young woman, assuming that she would find the Queen's news confusing, perahsp even upsetting. But the Queen felt she should not delay, felt she owned the terrified, honest girl the relief she would gain from knwoing the truth.
+
+Once she was changed, she instructed her maid to have the house manger and house mistress come to her room. When the older man and woman appeared finally, they looked upon her as if she stood in the middle of her room naked, though she was only in her night clothes. The Queen chose to ignore this and said to them, "I wish to visit one of the candidates from the selection today. Please take me there."
+
+They both replied, "Yes your majesty" and showed her the way.
+
+The house she occupied was very large, not as large as the house she grew up in, but large nevertheless. It wrapped around a courtyard, as well, and bridge crossed a street to connect a smaller house to it as well. Many of the house servants and staff lived in this other section. This was also where they had lodged the candidates for the few nights they needed to be available for the ceremony.
+
+The servants quarters was quiet, but she could hear many of the servants who probably were light sleepers after so many years of service, stirring at the sound of the padding feet down the hall.
+
+A few doors opened, followed by gasps and "Pardon me, your majesty." Some of the servants had never seen their queen up close before, much less dressed in such a casual way.
+
+As she passed, the queen gave these shocked onlookers a downward handgesture as if to say, "carry on and don't make a fuss."
+
+They rounded a corner, went up two flights of stairs, until they were at the top floor of the wing. The ceilings were low and the air was stuffy up here, despite one of the small round windows at the end of hall being opened to the cool night air.
+
+They walked mid way down the hall and stopped at the door. the house manager said, "The young lady is quartered in here with her grandmother. They're probably both asleep by now, though earlier there was quiet a bit of commotion up here."
+
+The housemistress gave the man a dispapproving look, "We had a number of upset young ladies, that is all your majesty. There was some consoling, and celebrating as well."
+
+"That is fine," the queen replied. "Please knock and announce my presence."
+
+The house manager did as instructed. The house mistress walked through the open door into the room and the sleepy voices that met them. The queen could hear a match strick and lantern lit. The housemistress returned to the door, "They're ready for you now, my lady."
