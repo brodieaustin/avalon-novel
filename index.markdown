@@ -1361,3 +1361,103 @@ The housemistress gave the man a dispapproving look, "We had a number of upset y
 "That is fine," the queen replied. "Please knock and announce my presence."
 
 The house manager did as instructed. The house mistress walked through the open door into the room and the sleepy voices that met them. The queen could hear a match strick and lantern lit. The housemistress returned to the door, "They're ready for you now, my lady."
+
+The Queen stepped into the small room -- two simple beds pushed against either wall. A washing table between the two beds. Two traveling chests were stacked on top of each other to her right.
+
+Much like the hallway, they had the two small window open. The coarse, simple curtains were pulled back, but the night breeze tossed them about.
+
+The grandmother was still asleep, her back turned to the room. The young woman, India, stood in front of her bed.
+
+The Queen tried to smile at her, to portray herself as a benificient presence, though she could tell that India was terrified. "There's no reason to be afraid, I just wanted to deliver a message to you in person."
+
+"Yes, your majesty."
+
+"Perhaps we should step in the hall and not wake your grandmother."
+
+"She will not wake, she's a sound slepper. And...she's not my grandmother. Not really."
+
+"What do you mean?"
+
+"I was adopted. She raised me, trained me. For this moment. I've dreamed of nothing else  for many years."
+
+The Queen was not expecting this turn, "I see. Will you sit down? I would like to sit next to you."
+
+India tentatively stepped back to sit and the Queen approached the bed.
+
+The house mistress tried to intervene, "We can bring your majesty chairs, if you'd be more comfortable."
+
+"No, this is fine, thank you."
+
+The bed sagged as she sat down, but she didn't let this distract her from her purpose.
+
+"I wanted to tell you in person that something has changed."
+
+"Changed, your majesty?"
+
+"Yes, I will not be recommending you as the candidate to the priests?"
+
+"Is it something I've done? I promise I can do better whatever it is."
+
+The Queen reached out and took the young woman's trembling hand in her own. Her hands were soft, much like hers at this age. She's been kept from labor and work, the Queen realied. She's been held back from hardship for this moment. Again, this didn't make her task any easier.
+
+"No, it is not because of you."  The queen paused. "Can I tell you a secret?"
+
+"Me? Of course your highness."
+
+"Being Queen doesn't mean you get to make all of the decision. This fact came as a great shock to me at first. I should say that I make many decisions, but some are to satisfy the wishes of others. A Queen's duty is to express the wishes and will of her people, not just her own."
+
+"I don't understand."
+
+"I mean to say that if I were able to, I would have recommended you. I can see that you would be a very capable candidate to wear the robe, to serve my kingdom. But I have other forces to weigh, other people to satisfy. Powerful people. So, I must chose a different candidate."
+
+The woman looked down at her hand in the Queens hand and removed it, holding it in her lap. "I see. Is that all, your majesty."
+
+The Queen did not mean for this conversation to go this way, she had hoped that this terried young woman would breath a sigh of relief, maybe give her an improper hug in her joy. Instead she had derailed this person from her path
+
+She stood up, deciding it was best to leave India with her misery for now. Perhaps she could find some way to make it up to her. "No, that is all. I am very sorry for this. Thank you and good night."
+
+The next morning, the Queen decided to take her breakfast in the solarium. Several birds had taken up residence among the lush foliage in there and she came to find their chattering comforting.
+
+She had finished breakfast and was closing her eyes, listening to the birds, when she heard footsteps and the clank of armor and swords. She opened her eyes to see the captain of the guard, accompained by one of his guardsmen, along with the house mistress.
+
+"Captain? This is an unexpected visit. What is it?"
+
+They all look grief stiken, even the stoic Captain, who had lived to see many horrible things.
+
+"I am afraid that I must deliver bad news, your majesty."
+
+"Yes, tell me. Don't be evasive."
+
+"There has been a terrible tragedy in the house. The young woman you met with last night, India, my lady."
+
+"What about her?"
+
+"She was found dead this morning."
+
+"Dead, how? Have we tightened securty?"
+
+"This was no murder, your majesty. The young lady hung herself by her bedsheets from the rafters in her room."
+
+The Queen closed her eyes. The birds seemed to scream now around her. Her head pounded. "What of the lady who was with her, her grandmother?"
+
+"She has disappeared, my lady. No one saw her leave the grounds."
+
+"Do my advisers know?"
+
+"I cannot say for sure, but I fear that word may spread quickly."
+
+"Be sure that it doesnt. By any means necessary. Do yo understand?"
+
+"Yes my lady."
+
+The housemistress stepped forward, "My lady."
+
+"Yes?"
+
+"I don't mean to be indelicate, but what are we to do with the body?"
+
+"Make arrangements for the body to be cremated and bring the ashes to me. In something discrete, not ostentatious. Do you understand?"
+
+"Yes my lady."
+
+# Chapter 5: While My Heart Is Still Beating #
