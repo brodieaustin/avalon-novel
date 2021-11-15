@@ -1434,7 +1434,7 @@ They all look grief stiken, even the stoic Captain, who had lived to see many ho
 
 "She was found dead this morning."
 
-"Dead, how? Have we tightened securty?"
+"Dead, how? Have we tightened security?"
 
 "This was no murder, your majesty. The young lady hung herself by her bedsheets from the rafters in her room."
 
@@ -1461,3 +1461,57 @@ The housemistress stepped forward, "My lady."
 "Yes my lady."
 
 # Chapter 5: While My Heart Is Still Beating #
+
+The Queen learned from several weeks later that the Priests approved the her candidate, her final candidate. Her senior advisor was delicate to the point of being ostentatious in the care he was taking to avoid mentioning the first candidate.
+
+The fervid whipsers died down within a few days, in part because the Queen had a housemaid who had been assigned to look after the candiates' quarters was dismissed from "idle talk and gossip." After that, the house grew queit on the subject of a woman that some may or may not have rememebred was India.
+
+The news that the priests selected her candidate came with more news from the priest, and thus from her senior adviser, who seemed very well acquiainted with the priests' ways.
+
+"Under normal circumstances, the monarch would host the candidate's robing ceremony. The priests have made an appeal your majesty in light of the circumstances."
+
+"What circumstances are those?" the Queen asked, not trying to be arch with her question.
+
+"Your majesty, trust me when I saw that they are not referring to *those* circumstances. I mean, rather, that the priests are planning to have...well...a coronation of their own, as if turns out."
+
+"I was not aware that the priests bore titles and wore crowns," the Queen replied.
+
+"I merely meant it as a turn of phrase, your majesty. I mean to say that a new High Priest has been selected as well. You have been invited as a distinguished guests to the new High Priest's ordination ceremony as well. Becuase of this, it was proposed, I should say that I proposed that we combine the celebrations into one."
+
+"Yes, go on."
+
+"It would be an excellent opportunity for your majesty to venture out into the kingdom again."
+
+"My father rarely took such trips."
+
+"Yes, that is true, but, and I mean no disrespect, that things are very different now compared to then."
+
+"Meaning?"
+
+"Meaning several things. The people are very much interested in their Queen. Your appearance would brighen hears and ease minds. As you know, your majesty, there a spirit of unease and discontent growing among the people."
+
+"I have read the reports, but you have said previously these were no cause for concern, just idle individuals indulging in fantastical expressions of violence."
+
+"That may have been true now, but I am beginning to take a different view of teh matter, a much darker view."
+
+"Indeed, it seems so. And you belive that I should venture out in this much darker version of the world around us. Do I understand this correctly?"
+
+"We would need to consult with your guard and ensure your majesty would be well protected. But thing of the impact it would have, seeing the monarch's face throughout the land, on on such an auspicious occasion, two auspicious occassions no less."
+
+The advisor was very convinced by the sound logic of his own reasoning. He seemed ready to take her place in the wagon train and wave to the noble peasants and workers, his subjects, across the kingdom.
+
+She begrudgingly admitted to herself, however, that his plan was a sound one. It was had been several yaers since her first royal tour. Traveling again would be pleasant. In fact, her heart stirred as she thought about leaving hte confines of her house and the city for a while. The episode with India still weighed heavily on her mind. She had misread the situation so completely, which turned out to be a fatal error.
+
+She rang a bell, causing one of the guards to open the door and a footman enter the room and bow. "Please summon the captain of the guards. I must consult with him on an urgent matter."
+
+When the door closed, the advisor turned to her, "A delightful turn of events, your majesty."
+
+The captain of the guard, however, had a different take on the proposal. He swept his flat hadn across his body, as if sweeping away the suggestion, cleaving it from its spot so it would topple over, "Out of the question," he replied to the advisor, once the advisor finished introducing his various provisios and considerations. The captaion turned to the queen, "Your majesty, even at the best of times, the roads leading to the priests' citadel can be dangerious. They offer very little cover, terribly visibility. They wind through small hamlets that have a long history of causing the monarch trouble."
+
+"What kind of trouble?"
+
+"Petty thefts, horse stealing, assassitation attempts, secession, to name a few. As I am sure you aware, I feel that a new wave of discontent will swell up in the region and overtake us."
+
+"Would this only take one or two weeks to happen? We must depart within a week."
+
+The advisor remained silent. The captain took a deep breath, "Your word is our law, your highness. We are the Queen's Guard, and we are bound to protect you with our lives. As guardsmen, we take this calling seriously and will gladly lay down our lives for you, but I cannot, in good faith, willingly put you in a situation where you might be required to lay down your own as well."
