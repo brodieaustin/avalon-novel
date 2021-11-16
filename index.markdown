@@ -1464,9 +1464,9 @@ The housemistress stepped forward, "My lady."
 
 The Queen learned from several weeks later that the Priests approved the her candidate, her final candidate. Her senior advisor was delicate to the point of being ostentatious in the care he was taking to avoid mentioning the first candidate.
 
-The fervid whipsers died down within a few days, in part because the Queen had a housemaid who had been assigned to look after the candiates' quarters was dismissed from "idle talk and gossip." After that, the house grew queit on the subject of a woman that some may or may not have rememebred was India.
+The whispers died down within a few days, in part because the Queen had a housemaid who had been assigned to look after the candidates' quarters was dismissed from "idle talk and gossip." After that, the house grew queit on the subject of a woman that some may, or may not, have remembered was India.
 
-The news that the priests selected her candidate came with more news from the priest, and thus from her senior adviser, who seemed very well acquiainted with the priests' ways.
+The news that the priests selected her candidate came with more news from the priest, and thus from her senior adviser, who seemed very well acquainted with the priests' ways.
 
 "Under normal circumstances, the monarch would host the candidate's robing ceremony. The priests have made an appeal your majesty in light of the circumstances."
 
@@ -1496,22 +1496,72 @@ The news that the priests selected her candidate came with more news from the pr
 
 "Indeed, it seems so. And you belive that I should venture out in this much darker version of the world around us. Do I understand this correctly?"
 
-"We would need to consult with your guard and ensure your majesty would be well protected. But thing of the impact it would have, seeing the monarch's face throughout the land, on on such an auspicious occasion, two auspicious occassions no less."
+"We would need to consult with your guard and ensure your majesty would be well protected. But thing of the impact it would have, seeing the monarch's face throughout the land, on on such an auspicious occasion, two auspicious occasions no less."
 
 The advisor was very convinced by the sound logic of his own reasoning. He seemed ready to take her place in the wagon train and wave to the noble peasants and workers, his subjects, across the kingdom.
 
-She begrudgingly admitted to herself, however, that his plan was a sound one. It was had been several yaers since her first royal tour. Traveling again would be pleasant. In fact, her heart stirred as she thought about leaving hte confines of her house and the city for a while. The episode with India still weighed heavily on her mind. She had misread the situation so completely, which turned out to be a fatal error.
+She begrudgingly admitted to herself, however, that his plan was a sound one. It was had been several years since her first royal tour. Traveling again would be pleasant. In fact, her heart stirred as she thought about leaving the confines of her house and the city for a while. The episode with India still weighed heavily on her mind. She had misread the situation so completely, which turned out to be a fatal error.
 
 She rang a bell, causing one of the guards to open the door and a footman enter the room and bow. "Please summon the captain of the guards. I must consult with him on an urgent matter."
 
 When the door closed, the advisor turned to her, "A delightful turn of events, your majesty."
 
-The captain of the guard, however, had a different take on the proposal. He swept his flat hadn across his body, as if sweeping away the suggestion, cleaving it from its spot so it would topple over, "Out of the question," he replied to the advisor, once the advisor finished introducing his various provisios and considerations. The captaion turned to the queen, "Your majesty, even at the best of times, the roads leading to the priests' citadel can be dangerious. They offer very little cover, terribly visibility. They wind through small hamlets that have a long history of causing the monarch trouble."
+The captain of the guard, however, had a different take on the proposal. He swept his flat hand across his body, as if sweeping away the suggestion, cleaving it from its spot so it would topple over, "Out of the question," he replied to the advisor, once the advisor finished introducing his various provisions and considerations. The captain turned to the queen, "Your majesty, even at the best of times, the roads leading to the priests' citadel can be dangerous. They offer very little cover, terribly visibility. They wind through small hamlets that have a long history of causing the monarch trouble."
 
 "What kind of trouble?"
 
-"Petty thefts, horse stealing, assassitation attempts, secession, to name a few. As I am sure you aware, I feel that a new wave of discontent will swell up in the region and overtake us."
+"Petty thefts, horse stealing, assassination attempts, secession, to name a few. As I am sure you aware, I feel that a new wave of discontent will swell up in the region and overtake us."
 
 "Would this only take one or two weeks to happen? We must depart within a week."
 
 The advisor remained silent. The captain took a deep breath, "Your word is our law, your highness. We are the Queen's Guard, and we are bound to protect you with our lives. As guardsmen, we take this calling seriously and will gladly lay down our lives for you, but I cannot, in good faith, willingly put you in a situation where you might be required to lay down your own as well."
+
+"Captain, I understand that you must protect your men's lives, and mine as well, but you must find a way to make this journey work."
+
+"Yes your majesty."
+
+***
+
+Within a week, the Queen found herself riding in a large caravan of horses, carts, soldiers, and servants. She had never seen such an assemblage before, outside of a war party. In fact, it almost seemed like she was mounting a small expedition to go topple the priests, rather than be their esteemed guest.
+
+Once they left the city behind, they traveled for several days through farms and countryside. At first she enjoyed the spare, empty land they traveled through. She felt hungry for the scenery, for the stimulation that seeing new things fed to her.
+
+She didn't sleep well at first, partly due to the continual sounds the guards made clanking around their nightly encampments. Once she could tune out their sounds though, the night was so quiet, a quiet she wasn't used to anymore.
+
+ She supposed that this must have been what nights sounded like when she was growing up, isolated on her father's large estate. They were in a remote part of the kingdom. She knew that, but didn't recall it being so lifeless and quiet.
+
+ After several nights, though, she grew used to the calm and quiet, which made being woken up in the midle of the night on their fourth night, that much more startling.
+
+ She must have been awoken by the shouting, or maybe it was the long groaning and moaning that seemed to come from the center of camp. Whatever the cause, the two guards who were stationed outside her door rushed in, swords drawn, and positioned themselves near her.
+
+ The Queen sat up and demanded, "What is going on out there?"
+
+ One of the guards replied, not ever looking at her, "We do not know your majesty. There seems to be a skirmish of some kind."
+
+ "What is that awful wailing?"
+
+ The other guard answered, "It seems that someone is injured."
+
+ "One of our own? One of the guard?"
+
+ The same guard replied, "That is unlikely, your majesty. We are trained to suffer in silence in the even that we are wounded."
+
+ The other guard cut in, "Please your majesty, dress yourself quickly and be prepared to move in the event that we must leave."
+
+ Another figure rushed into the tent. The two guards struck defensive poses, but a firm voice instructed, "Stand down, men. The threat is clear, for now."
+
+ "Captain, please tell me that evertyhing is alright out there."
+
+ "I apologize your majesty, our camp was overrun by a crowd of travelers. There were words exchanged, and one of them injured, after a fight with one of the guards."
+
+ "Who are these people? Where are they going?"
+
+ "I do not know the answers to that." The Queen stood up and threw her traveling cloak over her nightgown. "Where are you going, your majesty?"
+
+ "I am going to find out the answers and to see what state this injured individual is in at the moment."
+
+ The din outside was even worse than it had been in the tent. She crossed through the center of the encampment, past a watch fire they guard tended through the night, and saw her guards, keeping a large crowd of people back with their swords.
+
+ She looked around and saw a man laying on the ground, clutching at a spot on his tunic that was blooming into a large read pool of blood, much too large for this hand to cover. She turned to one of the guards that accompanied her, "You, fetch the doctor immediately."
+
+ The guard rushed to one of the nearby tents to rouse the doctor who the Captain had insisted travel with them. Now the Queen was thankful that she had listened to the captain and heeded what seemed, at the time, to be overly cautious advice.
