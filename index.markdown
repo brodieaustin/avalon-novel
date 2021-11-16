@@ -1550,7 +1550,7 @@ She didn't sleep well at first, partly due to the continual sounds the guards ma
 
  Another figure rushed into the tent. The two guards struck defensive poses, but a firm voice instructed, "Stand down, men. The threat is clear, for now."
 
- "Captain, please tell me that evertyhing is alright out there."
+ "Captain, please tell me that everything is alright out there."
 
  "I apologize your majesty, our camp was overrun by a crowd of travelers. There were words exchanged, and one of them injured, after a fight with one of the guards."
 
@@ -1565,3 +1565,19 @@ She didn't sleep well at first, partly due to the continual sounds the guards ma
  She looked around and saw a man laying on the ground, clutching at a spot on his tunic that was blooming into a large read pool of blood, much too large for this hand to cover. She turned to one of the guards that accompanied her, "You, fetch the doctor immediately."
 
  The guard rushed to one of the nearby tents to rouse the doctor who the Captain had insisted travel with them. Now the Queen was thankful that she had listened to the captain and heeded what seemed, at the time, to be overly cautious advice.
+
+The doctor stumbled from his tent and towards the patient and starting administering aid to the injured man. Another man stepped forward from the crowd towards the Queen. Her guards stepped between them and began pushing the man back. The man shouted in reply, "Please, I must speak with the Queen. Please hear our appeal."
+
+"Let him pass and let him speak," the Queen replied. As the man approached him, she could already tell the desperate, miserable condition that he was in. She scanned the group's faces too, firelight catching their eyes, bring them to life despite their tired, worn look.
+
+The guards stopped the man before he was within arms reach of the Queen. He didn't bow or bend his knee but looked her in the eyes and started his appeal, "Please your majesty, we ask for your aid and protection."
+
+"First help me understand what is happeneing and then we will discuss your appeal."
+
+As if in response, the man help up his hands in the firelight. She could see that they were rough and calloused. "We are workers, your majesty. Several families of workers. We have been traveling for many years now from place to place. We are masons and carpenters." The man paused, "My father's father worked on your father's estate, helped to build the great house. May he rest in peace."
+
+"For years we have been able to move around the kingdom undisturbed, work was plentiful. But now..."
+
+"Go on, do not hestitate to speak the truth."
+
+"Now I fear times are much worse. We are met with suspicion. Riders and soliders harrass us and prevent us from camping outside their towns. We haven't been able to work for over a month. We have been wandering. We have no food, our tents were seized by robbers."
