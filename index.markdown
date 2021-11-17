@@ -1528,43 +1528,43 @@ Once they left the city behind, they traveled for several days through farms and
 
 She didn't sleep well at first, partly due to the continual sounds the guards made clanking around their nightly encampments. Once she could tune out their sounds though, the night was so quiet, a quiet she wasn't used to anymore.
 
- She supposed that this must have been what nights sounded like when she was growing up, isolated on her father's large estate. They were in a remote part of the kingdom. She knew that, but didn't recall it being so lifeless and quiet.
+She supposed that this must have been what nights sounded like when she was growing up, isolated on her father's large estate. They were in a remote part of the kingdom. She knew that, but didn't recall it being so lifeless and quiet.
 
- After several nights, though, she grew used to the calm and quiet, which made being woken up in the midle of the night on their fourth night, that much more startling.
+After several nights, though, she grew used to the calm and quiet, which made being woken up in the midle of the night on their fourth night, that much more startling.
 
- She must have been awoken by the shouting, or maybe it was the long groaning and moaning that seemed to come from the center of camp. Whatever the cause, the two guards who were stationed outside her door rushed in, swords drawn, and positioned themselves near her.
+She must have been awoken by the shouting, or maybe it was the long groaning and moaning that seemed to come from the center of camp. Whatever the cause, the two guards who were stationed outside her door rushed in, swords drawn, and positioned themselves near her.
 
- The Queen sat up and demanded, "What is going on out there?"
+The Queen sat up and demanded, "What is going on out there?"
 
- One of the guards replied, not ever looking at her, "We do not know your majesty. There seems to be a skirmish of some kind."
+One of the guards replied, not ever looking at her, "We do not know your majesty. There seems to be a skirmish of some kind."
 
- "What is that awful wailing?"
+"What is that awful wailing?"
 
- The other guard answered, "It seems that someone is injured."
+The other guard answered, "It seems that someone is injured."
 
- "One of our own? One of the guard?"
+"One of our own? One of the guard?"
 
- The same guard replied, "That is unlikely, your majesty. We are trained to suffer in silence in the even that we are wounded."
+The same guard replied, "That is unlikely, your majesty. We are trained to suffer in silence in the even that we are wounded."
 
- The other guard cut in, "Please your majesty, dress yourself quickly and be prepared to move in the event that we must leave."
+The other guard cut in, "Please your majesty, dress yourself quickly and be prepared to move in the event that we must leave."
 
- Another figure rushed into the tent. The two guards struck defensive poses, but a firm voice instructed, "Stand down, men. The threat is clear, for now."
+Another figure rushed into the tent. The two guards struck defensive poses, but a firm voice instructed, "Stand down, men. The threat is clear, for now."
 
- "Captain, please tell me that everything is alright out there."
+"Captain, please tell me that everything is alright out there."
 
- "I apologize your majesty, our camp was overrun by a crowd of travelers. There were words exchanged, and one of them injured, after a fight with one of the guards."
+"I apologize your majesty, our camp was overrun by a crowd of travelers. There were words exchanged, and one of them injured, after a fight with one of the guards."
 
- "Who are these people? Where are they going?"
+"Who are these people? Where are they going?"
 
- "I do not know the answers to that." The Queen stood up and threw her traveling cloak over her nightgown. "Where are you going, your majesty?"
+"I do not know the answers to that." The Queen stood up and threw her traveling cloak over her nightgown. "Where are you going, your majesty?"
 
- "I am going to find out the answers and to see what state this injured individual is in at the moment."
+"I am going to find out the answers and to see what state this injured individual is in at the moment."
 
- The din outside was even worse than it had been in the tent. She crossed through the center of the encampment, past a watch fire they guard tended through the night, and saw her guards, keeping a large crowd of people back with their swords.
+The din outside was even worse than it had been in the tent. She crossed through the center of the encampment, past a watch fire they guard tended through the night, and saw her guards, keeping a large crowd of people back with their swords.
 
- She looked around and saw a man laying on the ground, clutching at a spot on his tunic that was blooming into a large read pool of blood, much too large for this hand to cover. She turned to one of the guards that accompanied her, "You, fetch the doctor immediately."
+She looked around and saw a man laying on the ground, clutching at a spot on his tunic that was blooming into a large read pool of blood, much too large for this hand to cover. She turned to one of the guards that accompanied her, "You, fetch the doctor immediately."
 
- The guard rushed to one of the nearby tents to rouse the doctor who the Captain had insisted travel with them. Now the Queen was thankful that she had listened to the captain and heeded what seemed, at the time, to be overly cautious advice.
+The guard rushed to one of the nearby tents to rouse the doctor who the Captain had insisted travel with them. Now the Queen was thankful that she had listened to the captain and heeded what seemed, at the time, to be overly cautious advice.
 
 The doctor stumbled from his tent and towards the patient and starting administering aid to the injured man. Another man stepped forward from the crowd towards the Queen. Her guards stepped between them and began pushing the man back. The man shouted in reply, "Please, I must speak with the Queen. Please hear our appeal."
 
@@ -1626,17 +1626,23 @@ It took another hour or so for the remainder of her party to cross. Once they we
 
 By the middle of the next day, the attendant awoke the Queen from a light nap, "Your majesty, I can see it."
 
-It took a moment for the Queen to slip from her dream back into the present moment, "What's that?"
+It took a moment for the Queen to slip back into the present moment, "What's that?"
 
 "The citadel your majesty. I could see the tops of its spires." The Queen looked out both windows but could not make out what the attendant was seeing. 
 
-They rounded a corner, and the attendant gasped, "It's so grand, I had to idea!"
+They rounded a corner, and the attendant gasped, "It's so grand, I had no idea!"
 
-The Queen positioned herself on the same side of the carriage as the attendant. Looking out the window to judge for herself, she had to agree. The citadel was grand.
+The Queen positioned herself on the same side of the carriage as the attendant. Looking out the window to judge for herself, she had to agree. The citadel, indeed, was grand.
 
 She felt a feeling of irksome irritation pass through her. Her city-based home was modest by comparison. Much more modern, of course, but modest. Her father's estate had not seemed as grandiose as the priests's citadel.
 
 Even from this distance she could being to make out the citadel was really a collection of several buildings, surrounded by a fortified wall, in the old style, and focused around a central hall with a tall center spire.
 
 As they drew closer, she could feel the carriage slant back as they made their way up the long causeway that led to the citadel's gate. She observed that the fortified walls, though seemingly old, were still imposing. They gave the citadel the appearance of a structure built for war, for calamity, and not for spiritual reflection.
+
+As they wound through the maze of streets, the Queen realized that the citadel was really a small city unto itself. The streets were dotted with merchants and stalls. Butchers, knife sharpeners, trash collectors. And squalor. The Queen was surpised by how dirty everythign and everyone inside the walls were. 
+
+It wasn't until they passed another interior fortified wall that they entered a groomed garden cultivated trees and trimmed rows of shrubbery. The Queen realized that this must be due to the former High Priest who, so many years ago, had explained that he took an abiding interest in plants and cultivation.
+
+A contingent of priests and servants greeted the Queen's party outside the imposing steps that led to the great, central hall.
 
