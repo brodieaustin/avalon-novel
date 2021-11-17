@@ -1581,3 +1581,62 @@ As if in response, the man help up his hands in the firelight. She could see tha
 "Go on, do not hestitate to speak the truth."
 
 "Now I fear times are much worse. We are met with suspicion. Riders and soliders harrass us and prevent us from camping outside their towns. We haven't been able to work for over a month. We have been wandering. We have no food, our tents were seized by robbers."
+
+The captain stepped forward when the man stopped speaking, "And what would you have the Queen do? Lend aid to any beggar that crosses her path?"
+
+The man looked back and forth between them, "Aid? Comfort? I mean no disrespect, but who else are we to look to for these things? We feel we are being led along a path we don't know and don't understand. Is there to be no comfort for us?"
+
+The Queen replied, "You will have what food and medicine we can spare. We are traveling too and only have enough provisions for our journey. I wish we could do more, but that is all I can offer."
+
+The man bowed, "We will gratefully take what your majesty has offered."
+
+"And I ensure that your young man is supplied with medicine to make his well again." She turned to the Captain and consulted with him. The captain reluctantly agreed before she turned back to say, "And I will have one of my guardsmen accompany you to the next town. In the morning, I will give you a letter of protectino with my seal on it granting you safe passage."
+
+"Again, we thank you. Our people will never forget your majesty's kindness."
+
+She turned back to her tent to catch what little sleep there was left to be had. She sat with the feeling that these gestures seemed futile in light of the conditions these people were facing. Another thought picked and poked at her as she tried to sleep. How could things be so bad in the kingdom and she was completely unaware of it? Why had she not heard of the plight of these people before?
+
+As she turned over this question, she realized that there was no one wearing the cloak, no one to watch over the kingdom on her behalf. These thoughts put into focus for her the importance of the ceremony with the priests and putting the ugly affairs of the last few days behind her.
+
+***
+
+After several more days of traveling, the party reached the largest river that separated the kingdom in two. The river wasn't particularly wide, but it was deceptively deep, with dangerous undercurrings lurking beneath the surface Crossing the river proved to be even more difficult because the bridge had been badly damaged during a storm. The Queen was surpised to learn that the storm had happeend several months back, and yet it had not been repaired, or rather repairs were ongoing.
+
+Instead, the party had to be ferried across the river. The crossing point was half a day's journey and would take them further away from their destination. The foreman overseeing the bridge repairs wouldn't budge and let them try to cross the bridge, so they were forced to take the ferries.
+
+The ferry was crude. Nothing more than a flat platform with a large rope spanning the river.  Three or four ferry operators would pull the ferry across using the Sitting and waiting for each cart and carriage to be taken across,  the Queen wondered if it was significant that on one side of that river was the Queen's palace, and on the other the priests' citadel.
+
+Surely this separation affected the way the priests conducted their affairs and thought about their relationship with the monarch. She wondered if the priests would treat her any differently when she was a guest in their citadel, their palace.
+
+"Ma'am, are you okay?" her attendant asked her. The Queen would often get so lost in thought that she would forget that there was a young woman travelling with her who was supposed to attent to her needs and keep her company. The Queen felt bad for the woman, momentarily. She probably had expectations about how exciting it would be to ride with the Queen, getting an intimate view of the court's inner workings. Instead she was riding with a woman who kept starting out of her carriage window, contemplating the meaning of rivers.
+
+When it was their turn to cross, the queen was surprised by how much the carriage moved on the ferry's flat platform. From a distance the whole affair had seemed very simple and straightforward. Now she regretted being stuck inside the carriage. 
+
+She leaned forward to the attendant and said, "Ask the driver if I may stand outside. I am feeling unwell being cooped up in here."
+
+"Yes, ma'am."
+
+She could hear the carraige driver talking it over with the ferrymen, who agreed it was okay. The carriage door opened and the driver helped the queen down. "Just stand near the carriage if you don't mind your majesty. It's been tied down quite well and will give you something to hold on to if you require it."
+
+"Thank you," the Queen replied. She felt like she could tolerate river's rocking motion better now that she was standing on her own feet. One of the ferryman drew a whistle out from under his rough spun shirt and give a shrill call with it. The other ferrymen took up the rope and began pulling the ferry across. 
+
+It took another hour or so for the remainder of her party to cross. Once they were all assembled on the priests's side of the river, the party continued its journey.
+
+***
+
+By the middle of the next day, the attendant awoke the Queen from a light nap, "Your majesty, I can see it."
+
+It took a moment for the Queen to slip from her dream back into the present moment, "What's that?"
+
+"The citadel your majesty. I could see the tops of its spires." The Queen looked out both windows but could not make out what the attendant was seeing. 
+
+They rounded a corner, and the attendant gasped, "It's so grand, I had to idea!"
+
+The Queen positioned herself on the same side of the carriage as the attendant. Looking out the window to judge for herself, she had to agree. The citadel was grand.
+
+She felt a feeling of irksome irritation pass through her. Her city-based home was modest by comparison. Much more modern, of course, but modest. Her father's estate had not seemed as grandiose as the priests's citadel.
+
+Even from this distance she could being to make out the citadel was really a collection of several buildings, surrounded by a fortified wall, in the old style, and focused around a central hall with a tall center spire.
+
+As they drew closer, she could feel the carriage slant back as they made their way up the long causeway that led to the citadel's gate. She observed that the fortified walls, though seemingly old, were still imposing. They gave the citadel the appearance of a structure built for war, for calamity, and not for spiritual reflection.
+
