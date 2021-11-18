@@ -1748,10 +1748,59 @@ The man smield back at her, "And you are a woman now, and Queen too."
 
 "Please, your majesty, I would prefer that we not talk about those events in great detail. Even now, I find those memories to be very distressing."
 
-"Of course, we should focus on the past. Or better yet the future."
+"Of course, we should focus on the present. Or better yet the future."
 
-He smiled again, "Yes, I like that idea very much. Do you care to sit? I am agraid that I must finish this reading, but I would still very much appreciate the company."
+He smiled again, "Yes, I like that idea very much. Do you care to sit? I am afraid that I must finish this reading, but I would still very much appreciate the company."
 
-She felt very rigid and formal, which contradicted the feelings she still assocaited with this boy after so many years. 
+She felt very rigid and formal, which contradicted the feelings she still associated with this boy after so many years. He seemed very changed now, serious and reflective. He was immersed in whatever he was reading. She tried to furtively glance at the text but it was written in a language she did not recognize. She sat next to him in silence, listening to night time sounds, feeling peaceful for the first time in a while. 
 
+He closed the book and it disappeared into the pocket of his long robes. He turned to her and asked, "How do you find the citadel?"
+
+"It is not what I was expecting."
+
+"In what way?"
+
+She wondered, before she replied, how much she should weigh her words. "It is larger, more grand in scale than I imagined."
+
+"You assumed that the priesthood would live in more modest surroundings."
+
+"Perhaps. I assumed austere, and there is something austere about the place, at least what I've seen. But there is...ambition in what I see too?"
+
+His face turned into an odd expression. She wasn't sure if it was curiosity or offense, "Hmm, ambition. Interesting. Ambition to what end?"
+
+"I cannot say, only being a visitor for a few hours."
+
+"So you think the priesthood should not be ambitious. Certainly the monarchy is ambitous, is it not?"
+
+"Explain your meaning, I do not follow."
+
+"No I don't suppose you would." he replied, almost muttering, but she could make out the words. "Only in the last few years, the kingdom has expanded, seized new territory, has it not?"
+
+"We've come to understandings with some of the outlying houses yes. In fact this is something I'm rather proud of. My father could never convince the lords of these houses to join the kingdom."
+
+"Or didn't want to..." he replied.
+
+"Perhaps. But I feel you are trying to imply or suggest something, but aren't speaking plainly."
+
+"Me? No, your highness, I am merely engaging in conversation with an old friend, who happens to be the most powerful individual in the kingdom."
+
+"The former High Priest may have begged to differ."
+
+"Perhaps. And perhaps the new one will as well."
+
+This last comment stoked her curiousity and interest. She leaned in to him. "Do you know who will be chosen as the next High Priest? This is news I should very much like to know."
+
+"Yes, many would. And only a few know."
+
+She looked at him shrewdly, "So maybe you do you. But aren't at libery to say."
+
+"We are..."
+
+She stepped in, "Bound by strict codes. Yes, I have heard of nothing but your codes since we arrived."
+
+"The codes are important. There wouldn't be a priesthood without the codes. They make us who we are."
+
+"And what are you, exactly?"
+
+"Protectors," was his simple reply.
 
