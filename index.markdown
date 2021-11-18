@@ -1644,5 +1644,114 @@ As they wound through the maze of streets, the Queen realized that the citadel w
 
 It wasn't until they passed another interior fortified wall that they entered a groomed garden cultivated trees and trimmed rows of shrubbery. The Queen realized that this must be due to the former High Priest who, so many years ago, had explained that he took an abiding interest in plants and cultivation.
 
-A contingent of priests and servants greeted the Queen's party outside the imposing steps that led to the great, central hall.
+A contingent of priests and servants greeted the Queen's party outside the imposing steps that led to the great, central hall. The leader of the priest's contingent stepped forward to greet the Queen, "Your majesty, welcome to the citadel. We are most honored to welcome you and have you as our guest."
+
+"Thank you."
+
+"If you will accompany me, I will escort you to your quarters."
+
+They started to make their way up the long flight of stone stairs. The stairs were a series of stairs connected by landings. The landings spanned out and seemed to lead off in different directions, suggesting that this great hall had many layers and levers to it.
+
+The priest accompanying her was silent while they walked, until they reached the third of four landings. She stopped and turned to the queen, "We often encourage guests to pause here. You will find this spot offers an excellent vantage point of the citadel and the land around it. The queen did as she was instructed and took in the scenery. 
+
+The landscape wasn't what she was used to. Here the land was harsher, more rugged and mountainous. As she scanned the view and fell on the mountains that began to rise behind the citadel and disappear in the distance, she thought of the High Priest again and turned to her host, "I am surprised that the duty of greeting the soverign doesn't fall to the High Priest. Where might he be?"
+
+"As you majesty knows we are in the midst of appointing a new High Priest."
+
+"Then what of the current one?"
+
+"I am afraid to say that there is no current one. The previous one...your current one if you take my meaning...passed several months back."
+
+The queen tried to muster her best sympathetic look, "I am truly sorry to hear that. The High Priest was a great man, by all accounts."
+
+"Indeed, your highness."
+
+"But why such a gap?"
+
+"Unfortunately, my vows do not allow me to comment on that. As I'm sure you can appreciate, I am duty bound to keep my order's secrets. That is one of our most deeply held secrets."
+
+"I see, but I will be afforded a chance to meet the new High Pirest soon enough."
+
+"Very soon, your majesty. In the meantime, I do not want to keep you from your quarters much longer. I'm sure you've had a long and tiring journey."
+
+The Queen merely replied, "Indeed," and began to follow the priest again.
+
+Her quarters were satisfactory, though she could tell by the look on her attendant's face that the attendant felt the rooms were not fitting for a queen. The walls were rough hewn stone. A fire burned in the large soot covered fireplace. Nothing was lavish. There were few decorations, little ornamentation. 
+
+Once the Queen convinced her attendant that she didn't need anything, she was relieved to have a few moments of quiet to herself. She sat in a high backed arm chair by the fire and let her head fall into her propped up hand. 
+
+As she dozed, she remembered through the scrambled haze of her sleep, the last time she had seen the High Priest. It wasn't during one of the rituals, like the time she originally met him. There had been several more rituals that she witnessed from afar after that one. She never took much interest in them after Avalon left, feeling wounded, if not betrayed, by the whole affair.
+
+Instead, she could see herself sitting at her father's bedside. Her father had grown weak, shockingly weak in what seemed like the course of mere days. Doctors from across the kingdom were summoned to examine the king and weigh in on the king's condition.
+
+In a fit of sorrow, her mother had even used her influence to have doctors of less savory reptuations visit, doctors who were just a likely to peddle nostrums in darkly colored vials, as provide legitimate medical device. But no amount of bleedings, leeches, or distilled venom from some rare serpent, seemed to help her father. 
+
+But she remembered this particular moment so clearly because it was the last time she saw the High Priest. He had been summoned too. When he entered the room, she could hardly make eye contact with him. In his lofty and diginfied state, he hardly seemed to mind that he made this young princess uncomfortable. 
+
+He did, however, come to stand by her and put his hand on her shoulder. The hand was meant to channel his will, much like before, but in a softer way than the rough grip he had used previously. Without looking at her, he said, "Princess, I must ask you to leave me. There are matters which I must discuss with the king now that I am here."
+
+For some reason, she had started to tear up and weepily stood up to leave the room. The servants and guards had been dismissed too, which spoke to the High Priest's power and influence even over this household that was not his own. With no one around, the princess stopped at the door. It was a heavy door, but she knew from experience that she would still be able to hear through, especially with in the quiet that surrounded her.
+
+"Your majesty," the High Priest began, "I am very disappointed to find you in this state. This is not how things were supposed to be." The High Priest must have been pacing around the bed, because suddenly she couldn't hear his voice as clearly.
+
+Then she found it again, "The work is not done. I am afraid to say what will happen if the work is not completed. Look at me you highness." The pricess could hear some rustling, "The work must be completed. I have tried to warn you in the past about your daughter. You wouldn't hear me then, but you have no choice but to hear me now."
+
+"She threatens everything we've worked for, everything your anestors worked to accoplish. No, not just accomplish, solidify. And that girl will not be able to see the work through. She is too rash and stoo sentimental."
+
+She heard more muffled talking then, "Do not look away, do not turn away from what I am saying. You know it is true. You must be strong. I demand that you be strong and see things through."
+
+The room fell silent and then she heared the High Priest's footsteps grow louder as he approached the door. She scrambled down the hall to find a hiding spot so she didn't get caught.
+
+***
+
+The Queen woke up to knocking at the door. She stirred but didn't sit right up, letting a wave of despair or sadness turn over her. Her attendant came in to inform her that they would dining privately tonight seeing as all of the priests and their servants were preparing for the festivities the next day.
+
+This arrangements worked very well for the Queen as she was not in the mood or state of mind to sit through a formal dinner. In fact she turned to her attendant and said, "I would like to take a simple meal here in my chambers, instead."
+
+"Yes your majesty. I will inform the staff, though they are not the easiest to communicate with."
+
+Within the hour, two of the kitchen staff brough in two trays for her meal, including a salad of mushrooms that grew around the citadel, a plate of fruits and nuts, water and wine, and several types of soup. "Thank you. Yes, please leave it there. Thank you so much. Thank you," was all she could say to expediate the servants's departure from her room.
+
+She are quickly and then said to her attendant, "I wish to take a walk, but I don't want to be suffocated by a guard and other staff."
+
+Your majesy, is this a wise decision?" her attendant replied. I didn't come away with a favorable impression of the citadel."
+
+"Your concenr is noted. I agree with you that much of the town that has grown up and round theis fortified seems to have fallen into neglect and disrepair.  But inside these walls seems very safe. I promise not to wander far. I am very tired after all."
+
+The queen finally convinced her retinue to let her walk outside. When she reached the outside, she decided to explore the step terraces more. Walking down the stairs, she realized, even in the early nightime dark that the terraces had also been planted with bushes and trees and flowers. 
+
+She found herself feeling refreshed by the cool night air, and enjoying walking in the early evening moonllight. The air was fragrant with flowers and fruit trees. The din from the city had queited down too. She would still hear a faint rumble of life in the distance, but she felt that she could be with her thoughts here for some time and feel quite content.
+
+As she strolled, she did not come across many priests out walking. She occoassionaly would see small groups of priests or servants scurrying this way and that, probably trying to accomplish some task that needed doing before tomorrow.
+
+She didn't see anyone, until she was a figure sitting on a bench. His head was closely shaved, but his hood pulled back. He was flipping through and reading a book he held in his left hand.
+
+The Queen drew closer to him and said in the midst of her surprise, "Leif? Is that you?"
+
+The figure on the bench looked up and her. Only this wasn't the boy she had met in the middle of a forest so long ago looking back at her. She could hardly see the smiling, energetic boy from that past. Instead a serious young man looked back at her, wrapped up in whatever he was contemplating in the book he held.
+
+He look at her for a moment as if he could not see her. Then everything seemed to click into place. He stood up, deliberately, and said, "Your majesty. I had heared that you arrived safely early today. We were all relieved to hear the good news."
+
+The Queen replied, "My goodness, Leif. You are a man, now. You are so grown up."
+
+The man smield back at her, "And you are a woman now, and Queen too."
+
+"Yes, she replied, but only for a few years now."
+
+"Indeed."
+
+"You are still a priest..." she said.
+
+"You seemed surprised."
+
+"I often wondered, after the last time I saw you..."
+
+"Please, your majesty, I would prefer that we not talk about those events in great detail. Even now, I find those memories to be very distressing."
+
+"Of course, we should focus on the past. Or better yet the future."
+
+He smiled again, "Yes, I like that idea very much. Do you care to sit? I am agraid that I must finish this reading, but I would still very much appreciate the company."
+
+She felt very rigid and formal, which contradicted the feelings she still assocaited with this boy after so many years. 
+
 
