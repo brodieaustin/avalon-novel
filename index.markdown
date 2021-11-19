@@ -1882,4 +1882,20 @@ He stood up and mockingly curtseyed before her then left the room.
 
 "What stakes are those?"
 
-"The stakes of waering the robe, of observing. Lord Burrington has told me all about and about how improtant the memories and storeies are. We all knew going in to the select process that nothing was guaranteed. Besides many things in life carry with them risk or the potential death."
+"The stakes of waering the robe, of observing. Lord Burrington has told me all about and about how improtant the memories and stories are. We all knew going in to the select process that nothing was guaranteed. Besides many things in life carry with them risk or the potential death."
+
+The Queen was surprised by how intimately familiar with the cloak and observer this young woman seemed to be, and how freely she spoke of Lord Burrington. The Queen would feel forces that she could not see and, perhaps, did not fully understand, moving in and out and round this candidate. Everywhere she looked, it seemed, were things in her surroundings that she had not seen before, things that she had not noticed or had been occulted from her view.
+
+She was ready to take her leave already, and assumed that she could do so with risking any breach of decorum. So, she stood and said to the young woman, "I must take my leave now. I know you are very busy today. I look forward to learning more about you during our journey."
+
+"What journey might that be, your majesty?" the young woman asked, seemingly not out of insolence but genuine confusion.
+
+"The journey back to my home and the court, to your future home as well," the Queen replied.
+
+The young woman looked very awkwardly over the Queen's shoulder, as if wishing that Lord Burrington was back in teh room, "I am afraid there may have been some misunderstanding, your majesty. I understood that I was to stay here in the citadel for a time. I was already allowed to choose my quarters and select a maid and everything. Were you not aware?"
+
+The Queen forced a small smile, "Of course, it must have slipped my mind. I am happy to hear that you will well cared for by the priests. Perhaps we will have an opportunity to become better acquainted in the not too distant future."
+
+"I sincerely wish for that, your majesty."
+
+The Queen took her leave and 
