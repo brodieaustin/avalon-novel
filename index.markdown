@@ -1804,3 +1804,82 @@ She stepped in, "Bound by strict codes. Yes, I have heard of nothing but your co
 
 "Protectors," was his simple reply.
 
+"And what does that make the make the monarch?"
+
+"That remains to be seen."
+
+The Queen paused, left silent by this remark. She was not sure what the make of what he had just said. She didn't have long to dwell on it because he abruptly stopp up and said, "I am glad we had this moment to speak. But I'm afraid that I must retire for the night. Tomorrow will be a very momentous day. Good night, your majesty."
+
+"Yes, good night to you too."
+
+***
+
+The Queen learned in the morning that a very strict schedule had been established for the day's events and would be adhered to stricly. It had been decided in advance that the ceremony appointing the new High Priest would take place first. After a short break, the robing ceremony would take place.
+
+The priest who had met her outside the citadel and, obviously, had been appointed to be her handler, ran through the schedule in her room. At the end, he paused and asked, "Would your majesty like to visit with the candidate?"
+
+"The new High Priest?"
+
+"No, your majesty, I mean your candidate to be the new observer."
+
+"She's here?"
+
+"Yes, your majesty. She has been here for several days. She arrived with Lord Burrington."
+
+"I see. Yes, of course. I'm sure there are many preparations to make on such a momentous occassion," she commented.
+
+"Naturally, your majesty."
+
+She did think to herself that many of these preparations did not seem to require her presence or particiaption. She knew that the candidate was a favorite of Lord Burrington's, but why had he personally escorted her to the citadel. 
+
+She decided it was worth her time to check in on the young woman, at least to guage what having her in her court on a day to day basis would be like. With everything that had happened following her decision to accept the lord's candidate, she had not been able to visit with the candidate at all. Everyone had been whisked away from palace as a safety measure.
+
+"Your majesty?" the priest interjected, interrupting her deliberation. "Do you have a preference?"
+
+"I should like to visit with her."
+
+"Very well. I will confirm when a convenient time might be and have that information communciated to you."
+
+"Convenient for her? What about me?"
+
+"Beg your pardon, your majesty, I only meant that there ware so many small details to attend to today. I was to avoid the appearance of interruprted anythin in this carefully planned schedule."
+
+The Queen could feel anger bubbling up inside her. She had not felt this way in quite some time, and assocaited the feeling with being younger. Unlike then, she could tamp down the feeling, probably closer to stomp down on it forcefully, to ensure that she did not say something that might be used against her later. So, she simply smiled and said curtly, "Indeed."
+
+As if understand what this short word and the tone it was delivered in meant, the priest excused himself and went about the business of confirming a time for the Queen to pay her respects.
+
+After the priest left, she sat in her room for most of the morning reading, writing letters, and observing her surroundings from the windows in her room. Occassionaly a citadel servant or one of her own would check on her. Once she waved them away, she would inevitably feel overlooked, uninvolved in th bustle that was clearly going on around her.
+
+Eventually her handler returned to tell her that the candidate was ready. He led her and her small retinue to another level of the citadel, one closer to the space where the events today would take place. 
+
+Whereas she had felt like someone sitting on the very wdge of the whirlpool, but only feeling slight ripples of its massive power, on this level, near the candidate's room, she started to feel the tide ripping and pulling around her. Everyone she saw had a nearly paniked look on their faces.
+
+Then the door to the candidate's room opened, and she met another serene face. Two faces in fact. Lord Burrington sat on the edge of a bed opposite from theis young woman.
+
+The young woman bowed and Lord Burrington nodded his hear to her. She looked at thim, surprised that he was here. "Lord Burrington, I was not expectign you."
+
+"Yes, I am helping my young protege about some of the finer points the momentous transition she is undertaking."
+
+"Excellent. May I have a moment along with the candidate?" the Queen asked. She saw a look pass between the two, with Lord Burrington give the young woman the subtlest of nods. 
+
+He stood up and mockingly curtseyed before her then left the room.
+
+"Do you know why I am here, child?" the Queen asked, opting to project herself as a concerned, caring aunty.
+
+"I am afraid I don't your majesty."
+
+"Well, as you know we didn't have a chance to properly meet before."
+
+"Yes, your majesty. It was terrible. My poor mother cried for the better part of the day."
+
+"And you?"
+
+"I beg your pardon, about what me your highnesss?"
+
+"Did you cry for the better part of the day, as you put it?"
+
+"Do not think less of me, but no I did not. Again, while I may have wished that unfortunate young woman well, the stakes are too high."
+
+"What stakes are those?"
+
+"The stakes of waering the robe, of observing. Lord Burrington has told me all about and about how improtant the memories and storeies are. We all knew going in to the select process that nothing was guaranteed. Besides many things in life carry with them risk or the potential death."
