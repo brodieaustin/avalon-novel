@@ -1898,4 +1898,50 @@ The Queen forced a small smile, "Of course, it must have slipped my mind. I am h
 
 "I sincerely wish for that, your majesty."
 
-The Queen took her leave and 
+***
+
+[strike]
+"You will enter the ceremonial hall with your party and then the Regents will enter. They will take up their positions on the dias. The Regent's Elder will announce the beginning of the ceremony."
+
+The Queen nodded as she took in the instructions and directions on protocol that her handler was delivering. She was not used to being the one to observe the finer points of etiquette and ceremony. She had grown accustomed to others adapting themselves to her.
+
+"A series of retications will begin. The elder will place the robes on the candidate. Then you will be called forward to the dias. Do not step on the dias, it is reserved for members of the order. But stop before it. A priest will hand you a bowl with a special compound. You are to dip your finger once in the compound, 
+[/endstrke]
+
+The time came at last for the day of ceremonies to being. Her handler came to fetch her and her attendants. He led her to an antechamber just outside the ceremonial hall where everything would take place. From outside the ceremonial hall, she could already hear sounds that seemed to blend chanting and singing together.
+
+A loud bell rang out and the hall fell silent. The handler appeared at the door to the antechamber and announced it was time for the Queen to enter the hall.
+
+She regretted the fact that she had let her head dressmaker convincer her to wear a dress with a train, a feature she normally avoided, finding them distracting. But the head dressmaker had insisted that this train would be fasionable and make a statement. As she walked into the hall, the only statement she felt like she was making was that she required help to walk properly and could only inch along at the pace of the attendant holding the end of the train.
+
+She had to traverse the entire length of the hall, which was large with soaring ceilings held up by large columns and seemingly massive stones ribs in the ceiling. The hall was already filled with priests, with lords and their retinues. Everyone stood as she entered, as they had been instructed to do. 
+
+She had been instucted to move to the front of the hall then turn to the left. She would be sitting in the first row of pews there, but notably not in a throne. Her advisers had tried to negotiate this point, that it was improper for the monarch to sit anywhere else. The contingent of priests who had been delegated to make these negotiations with her people insisted that there was only one throne in the ceremonial hall, and that was reserved for the High Priests. 
+
+She walked intently, looking forward, not making eye contact as her mother had instructed her so long ago to do. "Royals do not look upon their subjects, their subjects look upon them," she could hear her mother saying. She couldn't help but see Lor Burrington's large party standing alongside him, very near to the front, but on the opposite side of the hall from where she would be sitting. She could also begin to hear feet shuffling and scrapping on the stone floor; people were growing impatient of standing, even if their upper bodies tried not to betray this fact.
+
+Finally, she reached the first row of pews and pivoted to sit. Her train nearly caught on the corner of the pew. She started to lurch forward, but caught herself. Her attendant had to presence of mind to furl the train so it cam loose and hid the fact that she was really trying to free the train from the old wood leg.
+
+Once she sat down, she knew that the Regents of the Order would enter last. There were six seats arranged on the dias ahead of her, arranged around the high chair where the priests, once appointed would take his position.
+
+The Regents caused another delay due to their age. They shuffled in together as a group. Only one of the Regents at the end of the line seemed to walk with a more able bodied stride.
+
+Two priests stepped forward to help the regent at the head of the line step up on the dias and helped lower him into his chair, just to the left of the center chair. The others took their seats once their leader was seated.
+
+Another priests, a very younng man, placed a hand bell in the head Regent's hand to announce the beginning of the ceremony. The bell was very faint at first and nearly fell from the old man's hand. The young priest gripped the Regent's hand in his own and rang the bell loudly. 
+
+Everyone else in the hall sat now. A few dry coughs broke the silence that followed, but only lasted for a moment. More chanting or singing began. The Queen looked up and saw that above the dias, were a group of priests arranged in a series of tiers who were signing.
+
+When the sining ended, the head Regent started to speak, whispered really, in a dry raspy whisper. The Queen, sitting as close as she was, could barely make out the words. 
+
+The words themselves seemed not to matter as much as the fact that the High Regent was speaking. He paused momentarily and she could hear the large doors to the hall start to open. But the head regent spoke again, and the sound stopped.
+
+At last the head regent ended his speech and waved a trembling hand at the priest. The seemingly younger Regent stood. He was still gray haired and aged, but seemed postively robust in comparison. He stood and walked to the edge of the dias, in a loud commanding voice he called out, "The Regents of the Order are not prepared to consider and accept the one who was stepped forward to be considered for High Priest."
+
+The doors opened fully and the crowd stood again. The Queen had been instructed to remain seated, which she did, not wanting to negotiate any issues with her dress. This mean, though, that she was not able to see the candidate walking down the center aisle until he stood at the foot of the dias.
+
+The candidate stopped before stepped up, his back to the hall. The candidate seemed young, much younger than the Regents. In fact, she was almost surprised by how young he seemed. The head regent feebly rang the bell again and the candidate turned to face the hall.
+
+He turned and addressed the room, "I am presented myself to the Regents to be considered for the position of High Priest. I will recount my accomplishments that qualify me for this position."
+
+The candidate did indeed begin to recite his qualifications, but the Queen hardly paid any attention to that. She was distracted by the fact the Lief was the young man standing there to be considered as the next High Priest of the Order.
