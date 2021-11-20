@@ -1812,7 +1812,7 @@ The Queen paused, left silent by this remark. She was not sure what the make of 
 
 "Yes, good night to you too."
 
-***
+# Chapter 6: The Main Thing #
 
 The Queen learned in the morning that a very strict schedule had been established for the day's events and would be adhered to stricly. It had been decided in advance that the ceremony appointing the new High Priest would take place first. After a short break, the robing ceremony would take place.
 
@@ -1900,14 +1900,6 @@ The Queen forced a small smile, "Of course, it must have slipped my mind. I am h
 
 ***
 
-[strike]
-"You will enter the ceremonial hall with your party and then the Regents will enter. They will take up their positions on the dias. The Regent's Elder will announce the beginning of the ceremony."
-
-The Queen nodded as she took in the instructions and directions on protocol that her handler was delivering. She was not used to being the one to observe the finer points of etiquette and ceremony. She had grown accustomed to others adapting themselves to her.
-
-"A series of retications will begin. The elder will place the robes on the candidate. Then you will be called forward to the dias. Do not step on the dias, it is reserved for members of the order. But stop before it. A priest will hand you a bowl with a special compound. You are to dip your finger once in the compound, 
-[/endstrke]
-
 The time came at last for the day of ceremonies to being. Her handler came to fetch her and her attendants. He led her to an antechamber just outside the ceremonial hall where everything would take place. From outside the ceremonial hall, she could already hear sounds that seemed to blend chanting and singing together.
 
 A loud bell rang out and the hall fell silent. The handler appeared at the door to the antechamber and announced it was time for the Queen to enter the hall.
@@ -1944,4 +1936,94 @@ The candidate stopped before stepped up, his back to the hall. The candidate see
 
 He turned and addressed the room, "I am presented myself to the Regents to be considered for the position of High Priest. I will recount my accomplishments that qualify me for this position."
 
-The candidate did indeed begin to recite his qualifications, but the Queen hardly paid any attention to that. She was distracted by the fact the Lief was the young man standing there to be considered as the next High Priest of the Order.
+The candidate did indeed begin to recite his qualifications, but the Queen hardly paid any attention to that. She was distracted by the fact that she recognized the young man presenting himself as candidate. Lief was the young man standing there to be considered as the next High Priest of the Order.
+
+After he finished his recitattion, each member of the regents recited some formulaic text and then gave his judgment. They were all unanimously in favor of the young man's candidacy. 
+
+Then two priests appeared from the wings of the dias carrying large boxes. She had been told ahead of time that each box contained a ring--rings that the high priest wore for the duration of his time in that position. 
+
+She was called forth to place one of these rings on his fingers. She approached the dias, trying not to lock eye contact with him. It wouldn't have mattered, becuase the young man was completely absorbed in the moment. He seemed to not be aware of the particulars of what was happeneing before him. 
+
+The Queen took the ring that was presented to her, a large ring with the symbol of a crown embossed in it, and moved to place the ring on his hand. He did not smile or nod or make any recognizable gesture of recnogization or intimacy. She might as well have been facing a stranger. 
+
+After all, perhaps she was facing a stranger. She had had a fun afternoon picnicing and laughing with a young boy who seemed to have not grasped the weight of what was about to happen to himm. Grasping that weight seemed to have changed him, even transformed him into the person who seemed distant and cold now, who had seemed almost hostile the night before. 
+
+His strange tone last night made more sense now. But even now that she knew he was, in fact, the very candidate she had asked and speculated about, there was been and undercurrent, not just of hostility, but even agression in the way he spoke to her.
+
+She didn't have long to consider this, though. Once the ring was placed on his hands, he turned to face the regents. The oldest regent waved him forward; he took his first step up onto the dias. He took another step, kneeled before the head fo the chairs who, once again with assistance, placed the second ring on his finger.
+
+With that he stood up, turned to face the hall again. He began to recite a long passage in a language she did not understand. She could only assume it had to do with the passage he was reading and studying the night before.
+
+With the recitation completed, he sat down in the chair that had, up to now, been empty. He sat down and became the new High Priest of the order.
+
+***
+
+After the ceremony, the Queen's handler appeared at her side and whispered, "The High Priest would like a word with your majesty in his private study."
+
+"I was planning to retun to my quarters to rest before the robing ceremony. Can it wait?
+
+The handler shifting uncomfortably, "The High Priest was very insistent."
+
+Deciding that it was best not to antagonize the new High Priest mere minutes into his reign, she replied. "Yes, yes of course. She wondered what business he could have and what would be so urgent.
+
+The handler led her down a series of halls to an open door. She stepped inside to a spacious office lined in bookcases, dotted with artifacts, and other seemingly priceless objects. The new High Priest was standign by the windows. He turned to her. 
+
+"I apologize that I did not say anything last ngith to you about my candidacy. I hope that was not awkward for you."
+
+"No not awkward, I understand that there are customs and ways of doing things that you hold tightly."
+
+He nodded and looked around this room. "I remember being brought to this very room when I first arrvied at the Citadel. I just just a boy, not long before i met you for the first time. I was terrified."
+
+"Of course, you were just a child."
+
+He didn's acknowledge her comment but continued on, "Look at this place. A learned person must inhabit a place like this. A person with a strong will, who holds sway over the world. An important person. A powerful person." She thought perhaps this was a bit overstated, but he took his point and didn't want to stoke an argument on this momentous day.
+
+"And now I am here. This room...this place is mine."
+
+"And the power too."
+
+"Yes, the power too."
+
+"What do you plan to do with it?"
+
+"That is what I wanted to discuss with you, or at least in part."
+
+"Please, I am listening."
+
+"It has come to my attention that the candidate, once robed, must be sent immediately to the western frontier. There are great disturbances there and they must be captured so we cmay learn from them."
+
+"The west? We have only just brought the western lands into the kingdom. I...I am not aware of any disturbances."
+
+The High Priest began to pace, his arms drawn back behind his back. Was he feigning concern and seriousness? She couldn't tell. "All the more reason that she be sent at once."
+
+"Traditionally that has been the monarch perogative."
+
+"In consultation with the High Priest."
+
+"Perhaps, but..."
+
+"And I am consulting you."
+
+"I think you are informing me."
+
+He looked at her, "An insignificant difference in meaning."
+
+She decided to go ahead and lob the information she learned from the candidate into the conversation. "I only recently learned that the observer won't be residing in my household."
+
+"Yes, that was Lord Burrington's wish. As well as my own."
+
+"There is no precedent for it."
+
+"There is not precedent for a man of my age to be high priest. And yet here I am."
+
+"But this arrangement disorganizes the relationship between the priests and the crown."
+
+"Perhaps it is due for some disorganization," he replied.
+
+At that moment, none other than Lord Burrington appeared in a paneled side door in the office. Had he been listening to their conversation, she wondered. He sliced through the conversation with a hearty, "Congratulation, your highness. A wonderful feat. So many great things to come. Don't you agree, your majesty?"
+
+The queen smiled in reply.
+
+"I was just sharing with the Queen that my first formal order as High Prest will be to dispatch the obvserver to the western frontier."
+
+"Yes excellent news. The kingdom is hungry for stories, for news, no...for understanding of what is happening around them. I couldn't have devised a better plan myself"
