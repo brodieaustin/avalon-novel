@@ -2065,3 +2065,53 @@ The young woman unflinchingly said, "I am ready"
 Once the cloak was placed around her shoulders, the High Priest continued, "Please turn so that your sight may be awakened." The young woman turned, facing the half circle of priests. The High Priest stepped down from the dias and began chanting, staring at the eye intently, as if trying to master its wild vision with his will. He brought the eye down and close to his body, bowing his head over it. He lifted it aloft one more time. The entire hall of priests said serveral words in a langauge she didn't understand. They held their hands aloft as if mimicking the High Priest. He then thrust his hands out and seemed to touch the eye to the cloak. 
 
 When he stepped back, his hands were empty. The half circle parted and the woman began walking forward parting thier ranks and the ranks of priests in the room. As she walked, the Queen could see that the eyes on the cloak had all awoken and were all looking around, searcing for things to see, to record and report.
+
+# Chapter 7: Take a Chance With Me #
+
+Without even thinking about it, the Queen pounded her fist on the long table where her royal advisers adn officers sat. "I want to know what the High Priest and Lord Burrington is hiding. All that I am hearing is excuse making. It must stop."
+
+Her senior adviser, who she wished had been barred from the room, addressed the room, "Your Majesty, I am sure this is nothing more than a misunderstanding. Let me send representatives to the High Priest and Lord Burrington as proxies for your majesty to better understand what is happening."
+
+"What is happening is that something is shifting in the kingdom. Power is out of balance and you, all of you, have allowed this to happen. You pleged oath of fealty to the crown, you are servants of the crown. Without the crown, what are you?"
+
+The Queen's spymaster spoke up, "Your majesty, our networks have gove silent. We are hearing nothing, learning nothing."
+
+"Then create a better network. I am not a spymaster; I do not excel at spycraft." The senior advisor sighed heavily. "Do you have something you with to add?"
+
+"I do not with the Crown's Treasurer surely does."
+
+The Treasurere was a nervous man, who rarely spoke in these meetings. He shuffled his papers as a preamble to speaking. "Please Lord Treasurer go on. What bad news do you have to deliver?"
+
+"The bad...bad news your highness, is that the Crown's coffers are not as full as they once were."
+
+"And why is this? Why has nothing been said to me? Shouldn't expanding the kingdom bring more, not less, revenue?"
+
+"Spending, certainly. Spending is an issue. And...and out tax collectors. They are being run out of villages. Several heads of houses have refused them entry on their lands."
+
+"That is sedition. Treason. They should be tried and judged."
+
+The adviser interceded, "This is the heart of the matter, your highness. There are no laws by which to take them to trial. The crown's revenue has always been collected on a customary basis, an unspoken agreement between the houses in the kingdom and the monarch."
+
+"Then make it a law."
+
+"We have no mechanicsm by which to do this, I am afraid."
+
+"Then what? What will compell these houses and these places to pay their due to the Crown?"
+
+The room shifted, almost everyone at once, as if they all knew what was about the take place. Again, the Queen realized that she was the last in the line of people to receive and share important information. She knew she couldnt' let her frustration erupt any more than it had. "We may need to find more forceful methods to recuperate what belongs to the Crown..."
+
+"Send soldiers to collect taxes? Is that wise?"
+
+"It would be wisdom conditioned by the circumstances we find ourselves in, your majesty."
+
+The Queen turned to the commander of regular forces. "And what of this plan?"
+
+The gruff commander replied, "Your majesty, the soldiers have not been paid in many months. Many have deserted and returned home. We are a barebones force right now."
+
+"So I need money in order to be able to collect money? Please keep this song away from me, it is spinning my head in circles."
+
+The senior advisor stepped in, "But I believe there may be a solution. I believe we can borrow the sums needed to streghten our force. Lord X is still loyal to the crown."
+
+"Lord X was my father's man, who is to say he will support me?"
+
+"I think it is worth exploring, your majesty"
