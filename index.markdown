@@ -2026,4 +2026,42 @@ The queen smiled in reply.
 
 "I was just sharing with the Queen that my first formal order as High Prest will be to dispatch the obvserver to the western frontier."
 
-"Yes excellent news. The kingdom is hungry for stories, for news, no...for understanding of what is happening around them. I couldn't have devised a better plan myself"
+"Yes excellent news. The kingdom is hungry for stories, for news, no...for understanding of what is happening around it. I couldn't have devised a better plan myself"
+
+The Queen looked at them both. She could feel that she had lost her advantage in the situation and would have to accept this course of action. She could not, however, quite put into thoughts for herself how or why this was happening. Nonetheless, something was slipping from her grasp.
+
+"Well, then," she replied. "now that I have informed of your plan, I suppose the only thing left to do is to complete the robing ceremony."
+
+"Indeed," the High Priest replied. "I look forward to seeing you soon."
+
+***
+
+The Queen had insisted on changing before the robing ceremony. She did not want to be dragged down by the train and complicated dress. She knew that her changing would not raise much attention. Besides, she hoped that changing would help her change her outlook on what was happening around her.
+
+When she first reentered the ceremonial hall, she felt that maybe the change had, in fact, helped. The ceremonial hall felt very different from how it had felt earlier in the day. There were many fewer people, mostly just a contingent of priests in the room. Her place in the room was more central and prominent. 
+
+Nevertheless, everywhere she looked, the Queen could not help but see symbols of the priests' power and influence. Nothing illustrated this better than the young woman herself, the candidate who was brought into the hall for the ceremony. She did not, in fact, seem nervous or uncertain. She did not look to the Queen for any reassurance. In fact, she hardly seemed to take notice of the Queen at all.
+
+This ceremony began similarly to the last one as well. The regents entered the hall again, only this time, they were led by the High Priest. The new High Priest did not seem to realize at first that they was walking a two or three strides ahead of the elderly regents, and had to slow down once of twice, after glancing back over his shoulder and becoming aware of the distance.
+
+The regents and the High Priest took their places on the dias. The High Priest called for the candidate to come forward. The young woman approached the High Priest and bowed her head.
+
+Finally, another line of priests entered the hall. The Queen wasn't sure what their purpose was at first. She realized, though, that one of the priests in the middle fo the line was carrying something, perhaps a jar with something in it. The priests walked deliberately, slowly, particuarly the one in the middle. He seeemed very focused on the thing he was carrying and did not want to disturb its contents.
+
+The line stopped in front of the candiate when fanned out to form a half circle around her, enclosing the candidate with the barrier they created. She could make out the priest holding something as he approached the dias and the High Priest. Another priest beside the high priest took the jar or container and held it firmly in his grip.
+
+Another priest stepped up and stood on the other side of the high priest. This one had something drapped over his arms. She looked it carefully and realized it was the cloak, the same cloak that Avalon had shown her so many years ago. The Queen, of course, knew that this was the robing ceremony and that the candidate would be given the robe, but she had not seen it in so long that her mind was suddenly on fire with memories.
+
+The ceremony commenced, much like the last one, with the priests reciteing passages in various languages. After several minutes of this, the High Priest nodded to the priest holding the container. The High Priest reached in to the container and grabbed what was inside of it. He held up the object, which must have been suspended in some kind of fluid, above his head. It dripped slightly and the fluid ran down his arm.
+
+The Queen looked at it closely and realized that the thing in his hands was an eye, a large moving eye that was scanning the room, widly moving back and forth, seemingly taking in everything it saw around it. She nearly recoiled in horror, not having an idea that the priests somehow extracted the eyes and saved them, or did something with them.
+
+Still holidng the wildly moving eyes, the High Priest began to say, "Look in my hands, and you will see the thing that animates and preserves us. Our words are like sand, but what the eye sees, the eye does not forget. Please bring the candidate forward."
+
+The young woman took several steps forward. "It is time the robes to be placed on your shoulder, many others have worn these robes before you. Many others have performed this sacred duty before you. Are you prepared to be just one of many?"
+
+The young woman unflinchingly said, "I am ready"
+
+Once the cloak was placed around her shoulders, the High Priest continued, "Please turn so that your sight may be awakened." The young woman turned, facing the half circle of priests. The High Priest stepped down from the dias and began chanting, staring at the eye intently, as if trying to master its wild vision with his will. He brought the eye down and close to his body, bowing his head over it. He lifted it aloft one more time. The entire hall of priests said serveral words in a langauge she didn't understand. They held their hands aloft as if mimicking the High Priest. He then thrust his hands out and seemed to touch the eye to the cloak. 
+
+When he stepped back, his hands were empty. The half circle parted and the woman began walking forward parting thier ranks and the ranks of priests in the room. As she walked, the Queen could see that the eyes on the cloak had all awoken and were all looking around, searcing for things to see, to record and report.
