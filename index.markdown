@@ -2215,3 +2215,47 @@ She found it hard to believe that after so many years this issue was surfacing a
 "Couldn't both have been possible?"
 
 "Perhaps, but your relationship with Avalon meant that your parents kept the truth of her nature and her place in our lives secret from you, or at least obscured. Again, please pardon me for being so forthrigh. I do not mean any disrepsect towards your mother and father, but in this area, I feel they did not judge the sitiation correctly. I spoke up an asserted my opinion and this led to the rift with your father."
+
+"I see", the Queen replied. "I thank you for your honesty, but I am still confused to what end you are being honest. What purpose does this honesty serve?"
+
+The son started to speak, but paused. "Go ahead and explain our thoughts," the father said.
+
+The son continued, "There are certain secrets, certain knowledge that we have that we feel you should have. We have hesitated until now to share this knowledge with you. Learning that the Crown was searching for loans, needing support, concerned us and made us feel that you must have this knowledge if you are to continue on."
+
+"And what knowledge would this be?"
+
+"Knowledge about the observer and the cloak and what happens to the stories she records."
+
+***
+
+Lord Malcolm required rest after their conversation. The Queen felt that she needed time to reflect on what had transpired as well. Although it was unsettling to learn that this man and his son had some special knowledge they felt they needed to impart on her, it confirmed her feeling that throughout her reign certain things had been obscured and kept from her.
+
+Finally the appointed time came for them to reveal what they were going to reveal. The son entered the parlor where the Queen was taking tea. "My father will be down momentarily. He insisted on accompanying us, even in his weakened condition. Unfortunately in this old house, we have to have the grounds staff carry him down."
+
+"I am sorry that his conditioned is so deteriorated. It has been so long."
+
+"Yes."
+
+"Do you have something you wish to say?"
+
+"I do, your highness, but I hesitate to say it."
+
+"I am here, at your invitation. I have opened myself up to your honesty thus far and have taken offence. Have I not proven myself to be a willing accepter of the truth?"
+
+"Yes, and it is commendable, your highness. Perhaps even surprising."
+
+"Why surprising?"
+
+"There is a view, your highness. In the kingdom. Of the Crown...and of you?"
+
+"And you will acquaint me wtih this view?"
+
+"I would like to you, yes."
+
+"What view is that?"
+
+"The view is that your highness is too removed from the affairs of the Crown and the kingdom. That you are not well-acquainted with every day affairs."
+
+"I feel I must take exception to this, I do nothing but devote my days to the kingdom's business. If only I could recount for you the hours lost in meetings and so on."
+
+"I understand, your highness. I do not mean to suggest that you are not hardworking or serious about your role, please understand me. It is only that starting with your father, perhaps even before, there was been a certain withdrawl, and unwillingness to see what is really happening in the kingdom."
