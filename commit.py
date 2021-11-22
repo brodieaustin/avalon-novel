@@ -1,9 +1,12 @@
 import os
+from shutil import copyfile
 from datetime import datetime
 
 def main():
 
     today = datetime.today().strftime('%m/%d/%Y')
+
+    copyfile('/Users/brodieaustin/Writing/avalon/index.markdown', '/Users/brodieaustin/Dropbox/avalon.markdown')
 
     commands = [
         'git add index.markdown',
