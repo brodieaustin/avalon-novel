@@ -2078,15 +2078,15 @@ The Queen's spymaster spoke up, "Your majesty, our networks have gove silent. We
 
 "Then create a better network. I am not a spymaster; I do not excel at spycraft." The senior advisor sighed heavily. "Do you have something you with to add?"
 
-"I do not with the Crown's Treasurer surely does."
+"I do not but the Crown's Treasurer surely does."
 
-The Treasurere was a nervous man, who rarely spoke in these meetings. He shuffled his papers as a preamble to speaking. "Please Lord Treasurer go on. What bad news do you have to deliver?"
+The Treasurer was a nervous man, who rarely spoke in these meetings. He shuffled his papers as a preamble to speaking. "Please Lord Treasurer go on. What bad news do you have to deliver?"
 
 "The bad...bad news your highness, is that the Crown's coffers are not as full as they once were."
 
 "And why is this? Why has nothing been said to me? Shouldn't expanding the kingdom bring more, not less, revenue?"
 
-"Spending, certainly. Spending is an issue. And...and out tax collectors. They are being run out of villages. Several heads of houses have refused them entry on their lands."
+"Spending, certainly. Spending is an issue. And...and our tax collectors. They are being run out of villages. Several heads of houses have refused them entry on their lands."
 
 "That is sedition. Treason. They should be tried and judged."
 
@@ -2110,8 +2110,108 @@ The gruff commander replied, "Your majesty, the soldiers have not been paid in m
 
 "So I need money in order to be able to collect money? Please keep this song away from me, it is spinning my head in circles."
 
-The senior advisor stepped in, "But I believe there may be a solution. I believe we can borrow the sums needed to streghten our force. Lord X is still loyal to the crown."
+The senior advisor stepped in, "But I believe there may be a solution. I believe we can borrow the sums needed to streghten our force. Lord Malcolm is still loyal to the crown."
 
-"Lord X was my father's man, who is to say he will support me?"
+"Lord Malcolm was my father's man, who is to say he will support me?"
 
-"I think it is worth exploring, your majesty"
+"I think it is worth exploring, your majesty" the senior advisor replied. "If you will allow me, I will gladly explore this option on your majesty's behalf."
+
+"Very well, we will borrow the necessary sum to pay the soldiers. Commander, please let the word go out that soldiers are to report for duty. I want you to prepare to send a force out west to begin to recuperate what is owned to the Crown.
+
+***
+
+"Lord Malcolm will consider the Crown's request to loan it funds, but with conditions," the senior advisor explained.
+
+"What conditions?" the Queen replied. She had planned to take her regular carriage ride through the town and the great park at the center of the town. She learned that the senior advisor had been very insistent upon joining her, only to find herself waiting in her carriage for the advisor to appear. 
+
+They were now travelling through the section of the park that had been modeled like an enchanted forest from some far away time and some far away place. The trees grew densely here and a winding path unduldated over the gently sloping ground. The horse hoofs clacked on one of the several wooden bridges that were dramatically arched, and very noisy.
+
+The senior advisor learned forward, cupping his hand over his ear to hear better. The Queen lenaed in as well and spoke more loudly, "What conditions?"
+
+"Ah, yes, he insists that you personally call upon him at his residence."
+
+"Call upon him, like some doe-eyed girl about to come out to society? That's bold for someone who has all but fallen out of courtly life. When was the last time Lord Malcolm was seen in public?"
+
+"It has been some time, true, your majesty. But he was very insistent about his desire to your your majesty face to face to confirm the matter."
+
+They left the deeply shaded woods and sun light spilled over her face, causing her to squint and shield her eyes with her hand. The carriage rounded a corner and the sun was less intense. She replied, "Very well, inform Lord Malcom that I will pay my respects."
+
+Within a day, she was traveling again with her party of guards and attendants to Lord Malcom's estate and house. The Queen had vague memories of Lord Malcom from her childhood. For a period of time, he had been a frequent guest in their home. She could remmeber watching as her father and his guest rode out on horseback on days-long hunting expeditions. 
+
+Eventually he appeared in their home less frequently. She was never sure why though. She knew from her parents whisperings that Lord Malcolm remained loyal to the Crown, but something had come between him and her father.
+
+Lord Malcom's house was one of the wealthier houses in the kinddom, though the austere appearnace of his estate did not suggest this fact at all. The Queen was surprised, in fact, by how simple, even bland and tasteless, everything was as they approached the Lord's house. 
+
+The house itself was large, to be sure, but of a very plain design with very little ornamentation in the stone work. There were chimneys everywhere, but only a few seemed to be active with plumes of curling smoke.
+
+She was surpised to be led to the lord's chambers for their face-to-face meeting, and not some parlor or more formal meeting place. A servant opened the door as the Queen approached, and she immediately understood why.
+
+A large bed was positioned in the middle of room. And old haggard man lay in it, propped up in bed, being fed his lunch by a attendant. Next to the bed stood a man, older than her, but only by a few years. She could tell that the man was the lord's son since the younger man looked more like her memories of Lord Malcolm than the old man sitting in bed.
+
+It was the younger man, however, who stepped around the bed and bowed to greet the Queen. As he introduced himself, his father continued to eat. "Welcome your majesty, we are both glad you agreed to visit." As is self-concsious that his father was still eating, the son added, "My father must maintian a very strict regimine of diet and exercise in his current condition. He will be finished momentarily."
+
+"That is quite alright," the queen replied. 
+
+"Please, sit with me," the younger man said, guiding her around the bed to two chairs that had already been set up for them. After the Queen sat, the younger man sat as well and said, "I must admit that we were both relieved to learn of your request."
+
+"Relieved? Why relieved?"
+
+The younger man looked at his father and then back at the Queen, "We have started to hear things, rumors. We already had concerns based on what the records were saying."
+
+"What do you mean by records?"
+
+"The records, the stories recorded by teh observer."
+
+"I see."
+
+"I had suggested before that we approach your majesty with an offer to assist the Crown financially if needed, or in other ways, but my father brushed aside the suggestion."
+
+The Queen thought to herself that it was probably wise that they had done so. She would not have taken kindly to learning that Lord Malcolm was prepared to bail her out of her troubles. It was would have seemed presumptious to her, even if the spirit behind it had been well-intentioned.
+
+"Your father would never have allowed such a thing," another voice cut in on their conversation. It was a quiet voice, but a clear and proud one. The Queen looked over to the bed and saw that Lord Malcolm was finished with this lunch and was being sat up more to see and speak more clearly. 
+
+She stood up and approached the bed, deciding to brush aside any annoyance that these two men had been contriving ways to help her without her knowledge, "Lord Malcom, it is good to see you. I was not led to belive that you are unwell."
+
+"The years have not been kind to me, your majesty. But my physicians have helped prolong my time in ways that I do not find too disagreeable."
+
+"I am happy to hear that."
+
+"You've met my son, I see."
+
+She looked back at the man in the chair, "Indeed. And thank you again for welcoming me into your home." The son smiled in reply. She worried suddenly that their urgency to bring her here was some kind of matrimonial ploy. 
+
+"Of course, I am only happy to that you extended your hand to me. I have felt distanced from the Crown for a long time now. I have continued to perform my duty, to uphold the oaths I took, but doing has cost me much."
+
+"Lord Malcolm, I cannot answer for my father's action, especially when, as in this case, his actions are not known to me. Is there something I can do make amends for whatever might have happeened?"
+
+The men looked at each other. The younger man stood and stepped closer to the bed, "In fact, that gets to the heart of why why we asked you to travel here."
+
+"And here I am..."
+
+Lord Malcolm spoke up, "Your majesty, may I speak plainly, candidly what weighs on my mind?"
+
+His son replied, "Father, are you sure this is wise."
+
+The Queen cut in, "Please, Lord Malcom, even as a girl I did not like it when people were avoided telling me the truth. Please tell me what weighs on your mind in as unvarnished a manner as you are able to."
+
+"As you may know, a rift occured between your father and myself."
+
+"I assumed as much, but never knew why."
+
+"The rift was over you, your majesty. You were the cause."
+
+"Me? What did I do? I don't recall any breach in etitquette or any offence I might have given you."
+
+"No, you were a spirited child to be sure, but it was nothing you did. Rather it was something your father did in relation to you."
+
+"And what was that?"
+
+"I objected to way he let you cultivate a relationship with the observer, with Avalon, as you called her."
+
+She found it hard to believe that after so many years this issue was surfacing again, and in such an unlikely venue. "I was just a child. The relationship was innocent enoguh."
+
+"Of course your majesty. I am not making my meaning clear enough. My concern had more to do with how your father let you become familiar with the obverser, treat the observer like a friend. Historically that was not the role the observer was meant to have in the monarch's household. There was supposed to be distance. The observer was an instrument to acheive an end, not a vessel for friendship and affection."
+
+"Couldn't both have been possible?"
+
+"Perhaps, but your relationship with Avalon meant that your parents kept the truth of her nature and her place in our lives secret from you, or at least obscured. Again, please pardon me for being so forthrigh. I do not mean any disrepsect towards your mother and father, but in this area, I feel they did not judge the sitiation correctly. I spoke up an asserted my opinion and this led to the rift with your father."
