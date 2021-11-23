@@ -2274,9 +2274,9 @@ They alighted from the carriages and the Queen looked straight up the height of 
 
 The son, passing her as he approached the entrance. "This is the archive, your majesty."
 
-Inside they met another man who seemed to be about the son's age. He was introduced as the archivist, who oversaw and organized the archive. The Queen immediately noticed a familial resemblance, confirmed once the son added, "And my older brother."
+Inside they met another man who was older than Lord Malcolm's son by at least ten years. He was introduced as the archivist, who oversaw and organized the archive. The Queen immediately noticed a familial resemblance, confirmed once the son added, "And my older brother."
 
-The younger broker, the archivist, bowed and said, "Your majesty, I am happy that you are here, though i fear it is long overdue."
+The older brother, the archivist, bowed and said, "Your majesty, I am happy that you are here, though i fear it is long overdue."
 
 "So I am learning today. I seem to have be untimely in most of my affairs these days."
 
@@ -2328,13 +2328,13 @@ The Queen went to take a scroll from one of the shelves at random. The archivist
 
 "Yes, perhaps..." the archivst trailed off, clearly not enthusiastic about having to gather together materials on such a short notice. 
 
-They continued on their door by going back down the platform. After they descended ten or so floors, the plaform stopped again and they all stepped off. On this floor were a series of doors, no guards and no vaults. They passed through the doors and entered more rooms with shelves and scrolls.
+They continued on their tour by going back down the platform. After they descended ten or so floors, the plaform stopped again and they all stepped off. On this floor were a series of doors, no guards and no vaults. They passed through the doors and entered more rooms with shelves and scrolls.
 
-The archivist led the party dow a several rows and shelves, through a door, down more more rows, and another door. They turned one more corner and the Queen realized that the bin where the archivst poitned was empty. In fact the bins in this area were not as densely packed with scrolls as others she had seen on the tour. "This is where the archive ends."
+The archivist led the party down several rows and shelves, through a door, down more more rows, and another door. They turned one more corner and the Queen realized that the bin where the archivst poitned was empty. In fact the bins in this area were not as densely packed with scrolls as others she had seen on the tour. "This is where the archive ends."
 
 "That's the present?" the queen asked, looking at the empty space, or near empty space, there was one scroll laying askance in the other wise empty space. 
 
-The younger son answered this time, "Not exactly, your majesty. That is as far as the archive goes. It has not been updated in quite some time. And as you can see the output has slowed down significantly."
+The younger son answered this time, "Not exactly, your majesty. That is as far as the archive goes. We are still working to process stories that were collected--it is an arduous process. But as you can see the output became more and more inconsistent and has slowed down significantly."
 
 "We went some time without an observer, I know."
 
@@ -2362,10 +2362,40 @@ Once they were downstairs, the Queen was surprised by what she saw. They were st
 
 She almost gasped and stumbled back when she stepped into the room. It seemed as if a cyclops was staring back at her, as if the archivest and his father and brother had captured a mythological creature and was holding it hostage in this tall imposing tour.
 
-Once the shock and surprise wore off, we realize that, staring back at her, was a man sitting at a table with pen and paper in from of him. But on his face, he had a device of leather pieces and buckles strapped to his face. Seated somehow in the front was a single large eyeball that blicked and moved and looked around the room.
+Once the shock and surprise wore off, we realize that, staring back at her, was a man sitting at a table with pen and paper in front of him. He had a device of leather pieces and buckles strapped to his face. Seated somehow in the front was a single large eyeball that blicked and moved and looked around the room.
 
 The eyeball was so large and the Queen so close to it that she could see its large dark pupil narrow from the influx of feeble light from the hall.
 
-The man sat with this contraption on his face, seemingly unbothered by the whole thing. As they eye moved and shifted, the Queen realized that it wasn't looking at her. It was almost as if it was reenacting the movements it had made when it saw some event to record. In fact, the man was rapidly writing something down on the paper in front of him as the eye moved.
+The man sat with this contraption on his face, seemingly unbothered by the whole thing. As they eye moved and shifted, the Queen realized that it wasn't looking at her. It was almost as if it was reenacting the movements it had made when it saw some event to record. In fact, the man was rapidly writing something down on the paper in front of him as the eye moved. When the eye paused, then man stopped writting. Then it began again and the writing commenced.
 
-Finally, the eye stopped and the man stopped writing. He reached up and extracted the eye from the mount in front of his face. The Queen felt quesy as she saw how the eye's soft substance gave a little under the pressure of the man's grip. He kept it firmly in his hands htough and returned it to jar that was also on the table, though she only just now noticed it. The eye plopped into the fluid like a fish being returned to the water, and bobbed up and down for a moment before settling into a lazy float in the middle of the fluid.
+Finally, the eye stopped for good and the man stopped writing. He reached up and extracted the eye from the mount in front of his face. The Queen felt quesy as she saw how the eye's soft substance gave a little under the pressure of the man's grip. He kept it firmly in his hands htough and returned it to jar that was also on the table, though she only just now noticed it. The eye plopped into the fluid like a fish being returned to the water, and bobbed up and down for a moment before settling into a lazy float in the middle of the fluid.
+
+The man rubbed his eyes and blinked at the Queen. He stood silently and brushed passed her, leaving the room. The Queen stood in silence momentarily until two more people entered the room. One put a cloth over the container with the eye and removed it from the room. The other rolled up the papers, placing them in a leather tube. This person also hung up the seeing apparatus and tidied up the room.
+
+Lord Malcolm and his sons were waiting for her in the hallway. She stopped and asked them, "Why did the man in the room leave so quickly?"
+
+"Recording is exhausting work. It requires intense mental and physical concentration. Typically a recorder must rest for half a day before being able to work again."
+
+The other person who tidied up the room handed the archivist the tube. He explained, "The archivist reviews the recording for clarity, sometimes for fidelity?"
+
+"At times, I must review the recordings as well, when something in the recording seems confusing or misleading." The Queen noticed, looking at the archivst as he spoke that he had lines and wrinkled etched into his face where the mask must be when he wears it. 
+
+The younger son turned to the Queen, "Father is due for a rest. Let's return to the house and we can finalize any matters that need to be finalized."
+
+They returned to the archive's entrance. The older brother stood in the center of the space with his arms crossed behind his back. "Thank you for your visit your majesty. I hope it was worth your time."
+
+"I would say that it was. And I would very much like to see some examples of those scrolls at your earliest convenience."
+
+"Yes, your majesty. I will prepare soemthing for you. You mentioned this evening?"
+
+"If your father does not objects to my visit being prolonged."
+
+Lord Malcolm replied, "This is important work, your majesty. Take all the time you need."
+
+***
+
+They returned to the house and the Queen announced that she would like to walk. She needed to think over what she had seen today. She particularly wanted to consider Lord Malcom's motiviation brining her here to meet him and show her the archive. She still couldn't see how the loan she desired was connected to the urgency of their request.
+
+"May I join you?" the younger son asked.
+
+"I would like that very much, though fair warnign I am prone to long spells of silence and introspection when I walk."
