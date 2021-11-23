@@ -2259,3 +2259,113 @@ Finally the appointed time came for them to reveal what they were going to revea
 "I feel I must take exception to this, I do nothing but devote my days to the kingdom's business. If only I could recount for you the hours lost in meetings and so on."
 
 "I understand, your highness. I do not mean to suggest that you are not hardworking or serious about your role, please understand me. It is only that starting with your father, perhaps even before, there was been a certain withdrawl, and unwillingness to see what is really happening in the kingdom."
+
+"And you intend to correct this."
+
+"Pardon me. I don't mean to suggest that I or my father can correct something that you are doing. We merely wish to provide you with information we fear you are lacking, that we fear has been withheld from you for too long."
+
+"Very well then, I would very much liket to learn this informatino first hand, rather than continue talking about it.
+
+At this point, Lord Malcolm appeared downstairs and was ready to accompany them to wherever they were going. 
+
+They traveled by carriage roughly eastward from the house. After an hour or so of traveling, the Queen could see a tower rising above the treeline in the distance. They forded a shallow winding creek and then disappeared into a tangle of forest. Then the forest cleared and there emerged the tower. It was extremely tall, with large stones anchoring it at the base, and four-sided, though the edges protouded out to make rounded corners. 
+
+They alighted from the carriages and the Queen looked straight up the height of the tower, straining to see the top. "What is this place?"
+
+The son, passing her as he approached the entrance. "This is the archive, your majesty."
+
+Inside they met another man who seemed to be about the son's age. He was introduced as the archivist, who oversaw and organized the archive. The Queen immediately noticed a familial resemblance, confirmed once the son added, "And my older brother."
+
+The younger broker, the archivist, bowed and said, "Your majesty, I am happy that you are here, though i fear it is long overdue."
+
+"So I am learning today. I seem to have be untimely in most of my affairs these days."
+
+Lord Malcom spoke up, "Leave the Queen be, my son. We have much to discuss and should not waste time on squabbles."
+
+"Father, I do not think that acknowledging that the Crown's lapse of interest in the archive is wasting time."
+
+"Lord Malcom, it is quite alright. I appreciate that you have instilled such forthrightness in your sons."
+
+"I credit my late wife, your highness. She had more moral courage than me, I am afraid to say."
+
+"In any case, I know you are anxious to being my lessons, why first I must ask, What is this place?"
+
+The older son almost seemed aggreieved by the question, but he answered it all the same, "Your majesty, this is the repository of all the stories we collect form the observer."
+
+"I thought the priests performed that function."
+
+"No your majesty, the priests merely extract the stories. They developed and stablized a process. They are mere intermediaries, technicians if you will. We perform the hard work of transfering and preserve them."
+
+"Transfer?"
+
+The younger son stepped in, "I would like to suggest that we start with the preserve part and work our way."
+
+"If that is your wish," the older son replied.
+
+The father spoke up, "It is my wish."
+
+"Qery well, father."
+
+"One more question before we continue, and pardon my ignorance, but how long has the archive been here?"
+
+Lord Malcom replied, "Many, many years. Our family was trusted with the honor and responsibility ot build the archive, to house it, and protect it. This is a burden we gladly take on for the Crown, for the kingdom, as a sign of our fealty to the Crown."
+
+"And to the veractiy of the archive," the older son added.
+
+The tour finally commenced. The tower contained a series of mechanical platforms with operators who manipulated a series of counter weights and pullies to rise and lower the platform. The Queen felt a spell of dizziness almost overtake her as the platform rose up into the sky. They stopped and transered platorms before they reached the top of the tower. 
+
+A guard stood in front of a large vault door at the top floor. The guard opened the door after the archvist gave him a signal. They stepped inside a spacious room filled with shelves from floor to ceiling. The shelves were split into small boxes or bays that contained rolls and rolls of paper that had been tied up and stacked on top of each other. Not all of the boxes were filled evenly, which indicated that there was some sort of organizational principle at work here, even though her untutored eye could not detect it in a passing glance.
+
+The archivist waved his hand, "Your highness, you are seeing some of the earliest stories that were collected by the woman in the robe. Many of these narratives are incomplete, some of confusing or misleading. We did not fully understand the intricacies of transcribed what the robe had recorded. Nonetheless, you will find many of the momentous events that led to the kingdom's establishment housed here."
+
+"So the stories of my ancestorss..."
+
+Lord Malcom replied, "Are saved here, many of them at least. There are stories of our family too, though the mentions are more fleeting and taking a keen eye to find. But even in those early days, when my family were burgeoning farmers and land owners, our fates were bound up with each other."
+
+The Queen went to take a scroll from one of the shelves at random. The archivist nearly lunged forward to stopped her, "Your majesty, I must ask that you refrain from doing that. We have a very careful system for tracking the scrolls and where they are. Perhaps at another date, we could arrange a time for to consult a sample of them."
+
+"I would like that very much, perhaps this evening."
+
+"Yes, perhaps..." the archivst trailed off, clearly not enthusiastic about having to gather together materials on such a short notice. 
+
+They continued on their door by going back down the platform. After they descended ten or so floors, the plaform stopped again and they all stepped off. On this floor were a series of doors, no guards and no vaults. They passed through the doors and entered more rooms with shelves and scrolls.
+
+The archivist led the party dow a several rows and shelves, through a door, down more more rows, and another door. They turned one more corner and the Queen realized that the bin where the archivst poitned was empty. In fact the bins in this area were not as densely packed with scrolls as others she had seen on the tour. "This is where the archive ends."
+
+"That's the present?" the queen asked, looking at the empty space, or near empty space, there was one scroll laying askance in the other wise empty space. 
+
+The younger son answered this time, "Not exactly, your majesty. That is as far as the archive goes. It has not been updated in quite some time. And as you can see the output has slowed down significantly."
+
+"We went some time without an observer, I know."
+
+"Which will inevitably lead to gaps in the archive..." the archivist interjected.
+
+The younger son continued, "What my brother says is too. And, yes, the discontinuity in the role did affect how many scrolls were producted. But it was also a harvesting issue?"
+
+"Harvestting issue? How so?"
+
+"Perhaps we should move on to the final part of the tour. You will understand my meaning better then."
+
+***
+
+Once they reached the ground floor, they passed through a door that opened up onto a small staircase that led underground. The sons tried to encourage their father nto to come down, but he wouldn't hear of it. A servant helped him mount and traverse the stairs one at a time, very deliberately.
+
+Once they were downstairs, the Queen was surprised by what she saw. They were standing in a long hall. On each side of the hall were wooden doors. There seemed to be another staircase down at the end of the hall.
+
+"What is behidn these doors?"
+
+"Harvesting," was the archivest's response. "Before we venture further, I must warn you, your majesty, that you may not like what you see."
+
+"I am prepared for anything."
+
+"Very well." the archivest led them down the hall, four or five doors. He knocked lightly at the door and began to open it. The door squaled and whined like it didn't want to be opened. They all waited in the hall and gestured for the Queen to enter.
+
+She almost gasped and stumbled back when she stepped into the room. It seemed as if a cyclops was staring back at her, as if the archivest and his father and brother had captured a mythological creature and was holding it hostage in this tall imposing tour.
+
+Once the shock and surprise wore off, we realize that, staring back at her, was a man sitting at a table with pen and paper in from of him. But on his face, he had a device of leather pieces and buckles strapped to his face. Seated somehow in the front was a single large eyeball that blicked and moved and looked around the room.
+
+The eyeball was so large and the Queen so close to it that she could see its large dark pupil narrow from the influx of feeble light from the hall.
+
+The man sat with this contraption on his face, seemingly unbothered by the whole thing. As they eye moved and shifted, the Queen realized that it wasn't looking at her. It was almost as if it was reenacting the movements it had made when it saw some event to record. In fact, the man was rapidly writing something down on the paper in front of him as the eye moved.
+
+Finally, the eye stopped and the man stopped writing. He reached up and extracted the eye from the mount in front of his face. The Queen felt quesy as she saw how the eye's soft substance gave a little under the pressure of the man's grip. He kept it firmly in his hands htough and returned it to jar that was also on the table, though she only just now noticed it. The eye plopped into the fluid like a fish being returned to the water, and bobbed up and down for a moment before settling into a lazy float in the middle of the fluid.
