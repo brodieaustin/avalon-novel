@@ -2394,8 +2394,63 @@ Lord Malcolm replied, "This is important work, your majesty. Take all the time y
 
 ***
 
-They returned to the house and the Queen announced that she would like to walk. She needed to think over what she had seen today. She particularly wanted to consider Lord Malcom's motiviation brining her here to meet him and show her the archive. She still couldn't see how the loan she desired was connected to the urgency of their request.
+The fact that Lord Malcolm normally ate a very early dinner and retired early worked well for the Queen. After the simple meal, the Queen announced that she would like to walk to the archive for her consultation. 
 
 "May I join you?" the younger son asked.
 
-"I would like that very much, though fair warnign I am prone to long spells of silence and introspection when I walk."
+"I would like that very much, though fair warning I am prone to long spells of silence and introspection when I walk."
+
+They did, in fact, walk in silence for much of the way. Occassionaly the son would point out a noreable feature of the landscape, a particular tree he and his brother used to play under, or the barely visible foundations of one his early ancestral homes. 
+
+The Queen nodded with interest, though her mind was far away. She continued to think over what she had seen today and knew what she had a long carraige ride ahead of her in the morning. She particularly wanted to understand Lord Malcom's motiviation brining her here to meet him and show her the archive. She still couldn't see how the loan she desired was connected to the urgency of their request.
+
+When they arrived at the tower, the older brother greeted him, though he seemd somewhat flustered to see his younger brother in the Queen's company, though she couldn't understand why that would be the case. 
+
+The younger brother must have noticed it as well and said in a good natured way that he would linger downstairs and wait for the Queen. His brother seemed to accept this as an acceptable arrangement and led the Queen up to the tower's first floor.
+
+He explained as they walked, "Our quarters are on the first and second floor, though these days we are mostly confined to the first floor. There are only a few of the older recorders who still live on the second floor. It proved to be too difficutl to try to relocate them.
+
+"How long do the recorders reside here?" the Queen asked with interest, rememberign the exhausted expression of the recorder she had seen earlier in the day.
+
+"Usually ten years or so before the job is too much to continue on with it."
+
+"Too much?"
+
+"Yes, as we discussed earlier, the job is taxing on the mind, on the eyes. In rare cases we have had recorders who start to...disassociate from reality."
+
+"In what way?"
+
+"They cease to be able to distinguish between the reality they see recorded by the eyes and the reality they see with their own eyes. We see it first in the transcriptions."
+
+"How so?"
+
+"They read differently, confused, rambling. In the most extreme cases, the stories read like an assemblage of words that have been put on a page with little care to how things being and end. During my time, I have striven to improve the quality of the records, and the stories, as much as possible."
+
+"I see, and will I be able to disceren your attention to quality in the texts that I review tonight?"
+
+"I will be intereste to find out. I did not select these samples with that criteria in mind, rather I wanted to give your majesty a sense of the types of stories that are collected here."
+
+"But don't most of these stories make their way out into the world?"
+
+"Not all of them. From time to time, we deem theme unsuitable for circulation."
+
+"I see. Well, I look forward to being scandalized by something."
+
+The archivst retured a weak smile, as if he he felt the Queen's comments trivialized what he was doing. She ignored his passing irritation and attributed it to this abiding commitment to the quality and purpose of his work.
+
+She was taken to a table with several scrolls neatly arranged along the top. Much of the table's top was covered by a soft leather mat. Several heavy snake-looking objects covered in felt sat to one side of the mat. On the other, sat a magnifying lens. 
+
+"Please sit," the archivist said. "The magnifiying glass, as you can probably imagine, is to provide assistance with reading some of the handwritten scrolls. Some of the earlier scrolls are harder to read to due changing hand writing styles and the faded ink. This lamp on the table can be made brighter, but I ask that you not make it too bright. Not good for the scrolls."
+
+"And these?" the Queen asked, letting the heavy velvet snaks roll through her fingers and back on to the table."
+
+"Yes, for weighing down the paper to keep it flat. It helps ensure the paper does not tear, and encourages you to minimize the amount of time your hand spends in contact with the paper."
+
+The queen couldn't help with let an amused smile about the archvist's presentation, but she quickly suppressed it when the archivest turned his attention to her again.
+
+"Of course you are free to choose, but I have arranged these in chronological order from left to right. Whether you start witht the present and work back, or the past and word to the present, you may decide for yourself. Perhaps there is some other chart to course through them. I just left them in the order that seemed easiest to browse."
+
+"I appreciate your attention to detail."
+
+"Of course, your majesty. I have several matters to attend to elsewhere in the castle. One my servants is within earshot should you meed anything."
+
