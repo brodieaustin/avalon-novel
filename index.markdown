@@ -2068,7 +2068,7 @@ When he stepped back, his hands were empty. The half circle parted and the woman
 
 # Chapter 7: Take a Chance With Me #
 
-Without even thinking about it, the Queen pounded her fist on the long table where her royal advisers adn officers sat. "I want to know what the High Priest and Lord Burrington is hiding. All that I am hearing is excuse making. It must stop."
+Without even thinking about it, the Queen pounded her fist on the long table where her royal advisers adn officers sat. "I want to know what the High Priest and Lord Burrington are hiding. It has been months now since the robing ceremony and we have heard nothing from them. And All that I am hearing is excuse making. It must stop."
 
 Her senior adviser, who she wished had been barred from the room, addressed the room, "Your Majesty, I am sure this is nothing more than a misunderstanding. Let me send representatives to the High Priest and Lord Burrington as proxies for your majesty to better understand what is happening."
 
@@ -2370,15 +2370,19 @@ The man sat with this contraption on his face, seemingly unbothered by the whole
 
 Finally, the eye stopped for good and the man stopped writing. He reached up and extracted the eye from the mount in front of his face. The Queen felt quesy as she saw how the eye's soft substance gave a little under the pressure of the man's grip. He kept it firmly in his hands htough and returned it to jar that was also on the table, though she only just now noticed it. The eye plopped into the fluid like a fish being returned to the water, and bobbed up and down for a moment before settling into a lazy float in the middle of the fluid.
 
-The man rubbed his eyes and blinked at the Queen. He stood silently and brushed passed her, leaving the room. The Queen stood in silence momentarily until two more people entered the room. One put a cloth over the container with the eye and removed it from the room. The other rolled up the papers, placing them in a leather tube. This person also hung up the seeing apparatus and tidied up the room.
+The man rubbed his eyes and blinked at the Queen. Lord Malcom and his sons entered the small room. Lord Malcom addressed the recorder, "Tell us what you saw."
 
-Lord Malcolm and his sons were waiting for her in the hallway. She stopped and asked them, "Why did the man in the room leave so quickly?"
+The man spoke in a quiet whisper, "It is very much like the others. Troubling. Confused and cloudy."
 
-"Recording is exhausting work. It requires intense mental and physical concentration. Typically a recorder must rest for half a day before being able to work again."
+The older brother anxiously cut in, "Were there gaps, like the others?"
 
-The other person who tidied up the room handed the archivist the tube. He explained, "The archivist reviews the recording for clarity, sometimes for fidelity?"
+"Yes, my lord. Gaps, ellissions. Cutting and scraping away. The visions were thin, somehow, lacking depth and detail. Much is obscured and unclear." They stood in silence for a moment. "Pardon me my lord but I fear I must retire now and rest."
 
-"At times, I must review the recordings as well, when something in the recording seems confusing or misleading." The Queen noticed, looking at the archivst as he spoke that he had lines and wrinkled etched into his face where the mask must be when he wears it. 
+The recorder stood silently and brushed passed them, leaving the room. Lord Malcolm turned to her, "Recording is exhausting work. It requires intense mental and physical concentration. Typically a recorder must rest for half a day before being able to work again."
+
+Two more people entered the room. One put a cloth over the container with the eye and removed it from the room. The other rolled up the papers, placing them in a leather tube. This person also hung up the seeing apparatus and tidied up the room. The other person who tidied up the room handed the archivist the tube. 
+
+The archivest explaining, "The archivist reviews the recording for clarity, sometimes for fidelity. At times, I must review the recordings as well, when something in the recording seems confusing or misleading." The Queen noticed, looking at the archivst as he spoke that he had lines and wrinkled etched into his face where the mask must be when he wears it. 
 
 The younger son turned to the Queen, "Father is due for a rest. Let's return to the house and we can finalize any matters that need to be finalized."
 
@@ -2404,7 +2408,31 @@ They did, in fact, walk in silence for much of the way. Occassionaly the son wou
 
 The Queen nodded with interest, though her mind was far away. She continued to think over what she had seen today and knew what she had a long carraige ride ahead of her in the morning. She particularly wanted to understand Lord Malcom's motiviation brining her here to meet him and show her the archive. She still couldn't see how the loan she desired was connected to the urgency of their request.
 
-When they arrived at the tower, the older brother greeted him, though he seemd somewhat flustered to see his younger brother in the Queen's company, though she couldn't understand why that would be the case. 
+As they walked, she dwelled on what the recorder had said before leaving the room. She broke her silence by commenting, "I cannot help but think about what the recorded said about the recording he reviewed. He seemed troubled by the recording. Something is clearly wrong, from what the he explained."
+
+The younger son answered, "Yes, we have noticed a troubling trend in the last few months from the recordings we have receiving. As we said, the volume has lessened considerably, and the quality... If my brother were here he would say that they are deeply flawed, perhaps outright lies."
+
+"He takes the integrity of the archive seriously."
+
+"Indeed, he does. In any case, we are concerned by how the quality and character of the recordings have changed since the new oberserver was robed."
+
+"Why wasn't this brought to my attentino sooner?"
+
+"We were unsure how to broach the subject, unsure if perhaps these changes reflected some directive from the Crown itself."
+
+"I have not had any contact with the watcher, India is her name, since the ceremony."
+
+"Which is a concerned fact in of itself."
+
+"I have felt this way as well, but perhaps it was customary."
+
+"It has happened in times of need, but there is a clear precedent that the observer hews closely to the Crown and the monarch."
+
+"I see, then it seems that, rather than clarifying mysteries, I will leave with more."
+
+"Perhaps so, your majesty. I wish I could offer an explanation, or at least a theory. I can only present you with what we know to be true."
+
+They continued their walk in silence. When they arrived at the tower, the older brother greeted him, though he seemd somewhat flustered to see his younger brother in the Queen's company, though she couldn't understand why that would be the case. 
 
 The younger brother must have noticed it as well and said in a good natured way that he would linger downstairs and wait for the Queen. His brother seemed to accept this as an acceptable arrangement and led the Queen up to the tower's first floor.
 
@@ -2462,4 +2490,79 @@ It struck her all of a sudden that the scrolls, these later ones that she read f
 
 Which was closer to the real Avalon, she wondered? The one captured in these scrolls or the one she kept hidden away in her memories. Even though those moments in her life and those stories wound there way into her daily life, she counscioulsy did not dwell on them or in them that often. She felt that in some sense the version of Avalon she remembered was her childish, childhood version. Now, perhaps for the first time, she could consider Avalon as an adult, perhaps closer to how Avalon would have experienced things.
 
-She savored these complicated feelings, these layers of looking she saw this moment through, before she her fingers trailed over the older scrolls. Her finger, as if my sensation alone, landed on one of the oldest. These older scrolls were not paper, but parchment. She could feel their course animal texture. Some were more or less cleanly cut. The one she landed had remnants of a wound that must have healed and made an even coarser and rough edge.
+She savored these complicated feelings, these layers of looking she saw this moment through, before she her fingers trailed over the older scrolls. She began to read through these as well. There was a definite shift in these older recordings towards war and violence. But also building. She continued to read agains the timeline, so her reading inevitably left the impression that all that happened was suppsoed to happen. Reading this way made what was seem inevitable, proper, even good.
+
+As she rolled up the final scroll, she sat back in her chair and tried to lose herself in thought. Before she could, though, the archivist entered the room. He had his arms folded behind his back, much as she had seem him do earlier. "I see you have finished."
+
+"Yes, I have reviewed them all."
+
+"What did you think?"
+
+"I was surprised by how...chaotic some of the recordings were; perhaps complicated is a better word. The stories that we hear and share from these scrolls are simpler, easier to remember and recount."
+
+"Yes, there is a richness of detail that is lost," the archivist replied.
+
+"But sometimes the throughline of the narrative is difficult to find in these narratives. I can't say which is better, but both seem necessary. One wouldn't exist without the other. I must say that I feel a little overwhelmed by the amount of detail in these scrolls. I feel that I need a rest now."  As she started to stand, the Queen noticed archivist had moved his arms in front of him now and that he was holding another scroll. "What is that?"
+
+He tapped his finger on scroll, "This is another scroll. I didn't include it in the others. I wasn't sure if you would want to read anymore."
+
+She looked at him shrewdly and said, "Is this a test of some kind? Am I to pass or fail this test based on my reaction to this scroll."
+
+The archivest looked down at the scroll, "In a manner of speaking, but consider yourself the proctor and the student if it is a test."
+
+"Meaning?"
+
+"Meaning that I do not offer this last scroll to you as some sort of challenge from me to you. Rather it is a challenge that you must present yourself and overcome yourself."
+
+"You seem to be speaking in riddles, but I presume that I should read it now."
+
+"Again, I am only offering it to you. You must take it and decide what to do with it. I will leave it here on the table for you to decide." He sat down the parchment on the very edge of table and left.
+
+She woudl have to lean far to the side to retrive the scroll, but she decided to do it. She had come this far. She knew that she would do well to learn what was being offered to learn."
+
+She grabbed the scroll and sat it directly in front of her. Visually, this scroll looked different from the others she had seen. The older scrolls were not paper, but parchment, much like this one. She reached out to run her fingers over it surface. She could feel the course animal texture of the parchment. It felt related to the others she had read, only this one was rougher, less pristine. Even rolled up the edges were jagged, like it had been a remnant. 
+
+She unrolled the scroll and weighed it down. Unrolled she continued to see more differences. There was only two pieces of parment, but it was thick. It also had not been scrapped well. There were hair follicles from the skin still visible. toward the bottom, she ran a finger over the remnants of a wound that must have healed and made an even coarser and rough edge.
+
+The writing was very difficult to read. This copy had been hastily made. At times there seemed just be broken bits of phrase, random words filling the page. What had the transcribed been thinking, what had caused them to rush so much to put words on the parchment with such abandon, with so little care as to whether or not they would make sense to the person reading those words later on.
+
+She muddled her way through it, but finally picked up the thread. The text described a scene of confusion, and chaos. There had been a battle. Grief and death and destruction was everywhere. Faces seemed to come and go from the narrative. Faces of soldiers, hardened faces that were capable of commiting brutal acts.
+
+There was a tone of uncertainty, even fear in the descriptions, as if the person who originally captured these vision was also terrified, not able to stand apart from the scene, but had been a part of the scene.
+
+She came to a rambling passage as the figure wearing the cloak must have wandered for several days. There were desperate, frantic searches for food. The Queen came to understand that much of this was taking place in teh mountains. There was snow and very little in the area to sustain a person.
+
+There was a blank section on the page, then the story picked up again with the wearer of the cloak being surrounded by figure with chains. They were wrapping the wearer up in chains, dragging the figure behind a horse, through the mountains and down into the plains. There is a journey, a long walk chained to the horse. The soliders neglect the wearer, not offering much in the way of food or water.
+
+Finally they arrive at a castle. The lord of the castle meets the party and gives instructions. The wearer is taken to room, installed by a fire and given food at last. The cloak is taken and put in darkness, presumably in a wardrobe. The last thing it sees is the lord leaving the room and the door closing then locking behind him.
+
+Almost right on cue, the archvisit entered again. "I see you decided to read it." 
+
+"I did, but I do not see how this is some key that unlocks knowledge that I lack."
+
+"This is one of the earliest recordings we possess, if not the earliest. It is crude yes, but crucial to understanding everything that happened afterwards."
+
+"After what?"
+
+"After the first wearer of the cloak, no better yet the maker of the cloak, was captured and made captive by the lord who burned her village to the ground."
+
+"This...this is Griselda's story."
+
+"Yes, part of it, at least the part that no one hears or discusses. There is one subsequent text, we only have a partial copy of it because it was partially destroyed in a fire, but it goes into more...detail about her captivity and the methods used to bring her to heel to serve the lord's purpose."
+
+Then it clicked in the Queen's mind. The throughline suddenly connected up the pieces and she understood. She said out loud, not fully aware that she was doing it, "The lord, the one in Griselda's story. I am that lord's heir. His story is my story. Or at least I am bound to this story. Why don't more people know about this?"
+
+"This scroll has been hidden away for many, meany years, perhaps since the beginning. As the archivist I alone know of its existence and location."
+
+"Your father and brother?"
+
+The archivist shook his head, "Even they don't know. You are the first person I have shared this with since becoming an archivst thirty years ago."
+
+"Then this wasn't part of the plan? why did you chose to show it to me now?"
+
+"I cannot say why, but I feel that you will need this knowledge to see your way through the days that are to come. So that you may confront them with open eyes, not clouded by ignorance. I felt this was my duty as the Crown's archivist."
+
+"Your words are dire adn I hope what you saw does not come to pass, but I fear for the worse. Thank you for takign this chance, for sharing this with me."
+
+
+
