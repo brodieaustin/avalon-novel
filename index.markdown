@@ -2396,7 +2396,7 @@ They returned to the archive's entrance. The older brother stood in the center o
 
 Lord Malcolm replied, "This is important work, your majesty. Take all the time you need."
 
-***
+# Chapter 8: To Turn You On #
 
 The fact that Lord Malcolm normally ate a very early dinner and retired early worked well for the Queen. After the simple meal, the Queen announced that she would like to walk to the archive for her consultation. 
 
@@ -2562,7 +2562,64 @@ The archivist shook his head, "Even they don't know. You are the first person I 
 
 "I cannot say why, but I feel that you will need this knowledge to see your way through the days that are to come. So that you may confront them with open eyes, not clouded by ignorance. I felt this was my duty as the Crown's archivist."
 
-"Your words are dire adn I hope what you saw does not come to pass, but I fear for the worse. Thank you for takign this chance, for sharing this with me."
+"Your words are dire and I hope what you saw does not come to pass, but I fear for the worse. Thank you for takign this chance, for sharing this with me."
 
+***
 
+"So, I understand that you have returned from a visit with Lord Malcom," were the words welcoming her when she finally arrived back home.
 
+"Lord Burrington, I am surprised to see you. I was not made aware you were expected back in the city any time soon," she replied hoping that she communicated the right amount of exasperation with his presence in her house.
+
+"Yes, my position affords me the ability to move discreetly through the kindgdom when I wish."
+
+"And even into other's houses."
+
+"The Queen's house isn't just any other house, your majesty. It serve as the hub of the kingdom. The monarch's parlor is the kingdom's parlor, if you take my meaning."
+
+She had no choice but to take his meaning, because he was sitting there comfortably in an arm chair, cradling a glass of wine, and reading a book.
+
+"I have only just arrived home and would like to freshen up before I entertain guests."
+
+"Please do not wait on my account. I have nothing but time for your majesty today."
+
+"Very well, then I will return shortly."
+
+As she proceeded upstairs to her rooms, she whispered in a hissing voice to her maid, "Please find out how he was allowed entrance to my house."
+
+"Yes, mam, I will inquire as soon as we're done."
+
+After changing, she sat for moment in her room wondering how she could avoid having to commit her time and attention to Lord Burrington. She still felt a gnawing feeling that he and the High Priest were scheming against her. Her time away had not disspelled or disspirated that feeling at all. 
+
+He was here for some reason, but she didn't have enough information to know for sure, and resigned herself to needing to find out, however unpleasant it might be for her.
+
+She finally returned downstairs to the parlor where she found him browsing the small collection of books in the room. He was casually pulling books from the shelves, flipping through them, and replacing them.
+
+He turned when she entered and commented, "So many interesting titles, and very fine editions."
+
+"Yes, my father retained a binder to bind many of the volumes he enjoyed the best."
+
+"Exqusite work, truly. Commendation to the binder then." He returned to the chair where he had been sitting and picked up the volume left on the small side table. "But this volume, I find myself unable to put it down."
+
+The Queen sat in a small sofa opposite the chair and asked, "And what volume is that?"
+
+Lord Burrington sat as well and replied, "A collection of stories from the observer. Over the years. Fascinating read. And such interesting choice of selections. I see from the front matter than your father was the curator of his collection, as well as the publisher."
+
+"Yes that was one of this interests later in life. He began publishing volumes like that."
+
+"And yet he started out life with something of a warrior's spirit, did he not?"
+
+"I suppose so, though perhaps it isn't so odd that the monarch have something of a martial spirit."
+
+"Pardon my bold question, but do you, your majesty?"
+
+"Have a martial spirit? If the need arises, I suppose I do."
+
+"Interesting. Well, in any case, your father is a testament that life changes us as we live it. From man of war to man of letters. So interesting."
+
+"Lord Burrington, pardon my bold question now, but why are you here?"
+
+"That is an excellent question, your majesty. I am here to help you have some fun. For I am in need of some fun, and what better place is there for pleasure-seekers to be than the city with its places and people. One could quite literally disappear into it and never be seen again."
+
+"What makes you think that I need fun?"
+
+"Because word travels that our Queen spends her days on long dusty trips and sitting in dull meetings. Wasting away your youth. I feel mine slipping away too and aim to stanch the flow for at least a day."
