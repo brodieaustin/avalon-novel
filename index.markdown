@@ -2622,4 +2622,42 @@ Lord Burrington sat as well and replied, "A collection of stories from the obser
 
 "What makes you think that I need fun?"
 
-"Because word travels that our Queen spends her days on long dusty trips and sitting in dull meetings. Wasting away your youth. I feel mine slipping away too and aim to stanch the flow for at least a day."
+"Because word travels that our Queen spends her days on long dusty trips and sitting in dull meetings. Wasting away her youth. I feel mine slipping away too and mean to stanch the flow for at least a few hours."
+
+"And how do you propose to administer first aid to my youth?"
+
+"Well, I am glad you asked. It just so happens that I am the patron of a wonderful comedy troupe that will performing in the park. After that I happen to know of an artist who is looking for a powerful patron as well."
+
+"I will need to arrange things with my staff and guard."
+
+Lord Burrington groaned and rocked himself forward, "Ah, no, no. That is not it at all. I am proposing to see some of the shining artistic lights of the kingdom in my company and you talk of staff and guards. Let us taste freedom for a few hours."
+
+"So I should sneak out like a young girl chasing after her suitor."
+
+"Your majesty, let's not rush to any premature labels, but yes, in essence, that is what I am saying."
+
+***
+
+When she returned to her room, she complained of a headache and an ongoing sesntivie to noise to her maid, and send her staff and guards away for the night. She dressed herself in a simple dress and preceeded to make her way down the hall and the back stairs that the servants used to traverse the house. The kitchen was empty since the staff would be gathered together playing cards or resting since they had the night off. She almost ran into a scullery maid who was still cleaning the large kitchen fireplace, but managed to slip into a pantry before she was seen.
+
+The Queen could not remember the last time she snuck out of her house. She bregrugindly admitted to herself that she did feel a surge of youthfulness, even though she knew what she was doing was reckless. She told herself that she was playing the role of a spy for the day, one of the spies that the Crown could no longer afford to employ. 
+
+Once outside, she put on a veiled hat that she brought along to obscure her face then started walking down the sloping back alleys until it merged with one of the busy thoroughfares near her house. She paused momentarily knowing that his was her last chance to turn back and shrug off Lord Burrington's invitation. But she convinced herself again that not only was it necessary, but perhaps it would be a welcome distraction from the worries and cares of the last few months as well.
+
+She merged into the foot traffic walking down the crowded sidewalks. Boots and heels clacked on the cobbelstone walk ways. People pushed past her as she jostled up against the throng of people in the city. No one made eye contact with her, which suited her need to be clandestine just fine, and she had to remind herself not to stare at people as she walked. She realized that she had rarely been so close to people, ordinary people in the kingdom before. 
+
+Far from agitating her, the push and pull of the crowd propelled her along, envigorated her. She was found herself fascinated by the small details of the street in ways she rare noted when she was escorted along by her retinue of retainers and guards in a carriage. She noted the styles of buildings that seeemed ot claw at each other for dominance as one style of building replaced another as the fashions of the time dictated. 
+
+She observed windows or doors in high up places that had been bricked over and abondoned, leading her to wonder why. She would stop before being swept along to stare through some small arched opened between buildings that led down a narrow dark walk only to open onto a courtyard where sunlight poured in.
+
+Perhaps it was because she had so recently visited the archive and seen the immense number of scrolls and stories stored there, but she realized that despite its large size ands scale, there was so much that the archive did not house. So many things that the observer didn't see, so much that the monarch did not understand about the land she was supposed to represent, even embody.
+
+She walked to the edge of the park where Lord Burrington waited for her in a small crowd of people. The crowd of people melted away as she approached. She wondered if they knew he was meeting the Queen, or perhaps he had concocted some story about a lady he was meeting in the park. Either way she assumed he had infused his explanation with plumes of scandal for his audience to absorb.
+
+"My lady," Lord Burrington said as a greeting and held out his arm for her like a right and proper gentleman. She took his arm and they entered the park, each playing their appointed role, she thought to herself.
+
+***
+
+They walked through the winding lanes in the park to the center where a stone ampitheater had been built several generations ago. The Queen recalled that outdoor theater had been a great passion for one of her ancestors, hence the creation of this space. They sat high up and towards the back where other people with aristocratic pretensions sat. 
+
+Fortunatlye they did not seem very out of place among these wealthy audience members. No one seemed to recognize her as well, so she was able to relax and ready herself for the performance.
