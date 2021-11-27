@@ -2660,4 +2660,66 @@ She walked to the edge of the park where Lord Burrington waited for her in a sma
 
 They walked through the winding lanes in the park to the center where a stone ampitheater had been built several generations ago. The Queen recalled that outdoor theater had been a great passion for one of her ancestors, hence the creation of this space. They sat high up and towards the back where other people with aristocratic pretensions sat. 
 
-Fortunatlye they did not seem very out of place among these wealthy audience members. No one seemed to recognize her as well, so she was able to relax and ready herself for the performance.
+Fortunately they did not seem very out of place among these wealthy audience members. No one seemed to recognize her as well, so she was able to relax and ready herself for the performance.
+
+The show began when two figures came out on stage dressed as a king and queen. Their costumes were crude, but the symbolism was unmistakeable. The king took center stage and made a long speech about his good deeds as king and how wonderful life was in his kingdom. As he spoke, more actors trudged across the stage dressed as downtrodden working people. They passed right around the king but he didn't seem to notice them.
+
+While the king spoke, the actor playing the queen began berating and beating on the peasants who were walking through the stage interrupting the speech. The queen stopped her assault when a third figure appeared on stage. The person wore a long flowing cloak, only rather than being covered in eyes, it was covered in crudely stitched hands. 
+
+The king and queen stepped to the edge of the stage and watched eagerly as the figure in the cloak began to roam among the peasants pick pocketing their belongings. The actors put their acrobatic skills on display as the figure in the cloak would toss increasingly outlandish implements to the kind and queen who caught and balanced them one by one until each was balancing a large pile of the peasant's belongings. The audience gapsed with as each item was tossed then caught. When the cloaked figured disappeared off stage, a short round of applause rippled through the audience.
+
+A younger actor appeared on stage now, dressed like a princess, waltzing and swaying around the stage with seemingly no cares in the world. She too ignored the peasants, but stopped in the middle of the stage and eyed the tower of belongings the king and queen held greedily. In pantomime, the princess urged her parents to give her the belognings. She pleaded and begged. As her pleadings became more wild and more aggressive, the audience laughed more and more.
+
+Finally, the king and queen relented and began tossing the items to the princess who, apparently, was a trained juggler and not only caught the items, but began juggling them and tossing them back to the king or queen. The whole routine became quite elaborate until an actor portraying a priest entered the scene and caused the princess to skip and beat, thus letting all of the items suspeneded in the air fall on her.
+
+The actor portraying the princess put on an exagerated look of disappointment and frustration and began widly kicking and beating her fists on the ground while also twirling in place. More laughs and nods in the crowd over this bit.
+
+The priest waved offstage and more priests appeared. The first priests distributed the items to the priests waiting on him one by one. He led the princess off stage, draggign her by the ear and comically wagging his finger at her. 
+
+The priests exited to the other side. The peasants appeared again, only to be met by the priests who redistributed their belongings. The actors stopped, signaling the end of the scene. Before the actors could bow for their recognition, however, a loud piercing howl split the air and the princess ran across the stage in madcap fashion followed the king and queen, who had lost their crowns and other trappings of royalty and seemed intent on beating the princess with the large sticks they held. 
+
+In her capering, the princess figure ran circles around the king and queen. She avoided being beaten and instead grabbed one of the crowds, evanded her fathers oncoming grip and swipe, and then jumped into and through the audience then disappeared.
+
+The Queen looked around at the laughing and cheering audience. Each face she saw seemed lit up by a gleeful pleasure, a type of pleasure they didn't know they wanted to experience but were happy they were. 
+
+She stood up to take her leave, not wanting to sit through more lampooning of herself or her mother and father. She started down the small uneven path that led back to the central path that curved through the park. Lord Burrington caught up with her, slighly winded. She must have been walking faster than she realized.
+
+"Why are you leaving so soon? There is still another vingnette and you'll miss the incredible magician that is touring with them now. A personal connection that I made on behalf of the troupe."
+
+The Queen studied Lord Burrington for a moment. He looked as if everything they had just seen was simple, innocent fun. He wore a stupid look of comedic enjoyment on his face. She hated him even more in that moment, than she had before. "I think you know very well why I am leaving."
+
+"Because of that?" he pointed back towards the theater. "That's...that's comedy, satire. That is their role and purpose to lampoon those in power."
+
+"Is the second sketch about you? You have power."
+
+"Perhaps, but not like the monarch. Besides, can I really be faulted if you saw too much of yourself in that scene? That was not the intention. It was mere commentary on the role of a monarch."
+
+"Thief and child abuser?"
+
+"Now I wouldn't put it that way, but can you deny that the monarchy is premised on the notion of seizing and maintained that which is not its own."
+
+"I would deny this. The monarchy is the thread that stitches dispirate lands into a place, into a realm, into a people."
+
+"And what if the people do not see it this way?"
+
+"Lord Burrington, I do not appreciate being lectured on the ways of the common people by someone like yourself. Your family is powerful and wealthy. Perhaps even more so than mine."
+
+"Perhaps. True, true, but with one crucial difference."
+
+"And that difference is that?"
+
+"A crown has never touched the head of anyone in my family."
+
+"And that privilege seems to have made me a mark for humilitation this way."
+
+"No, your majesty. Please, I meant no offense, I thought you would find the humor in it. Certainly other did."
+
+"I must not be in the mood for humor after all. Good day." She continued her brisk paced walk back to the edge of the park. She wondered how far and for how long Lord Burrington would follow her.
+
+He was more persistent that she thought he would be. He finally caught up with her again and said, "Please, your majesty, do not run off like this. I would very much like to introduce you to the artist I mentioned earlier. I think you will find his work most intruiging and well worth your time."
+
+"More so than you travelling band of cut-throats?"
+
+"Yes, more than that, I promise."
+
+***
