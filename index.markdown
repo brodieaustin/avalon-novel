@@ -2420,7 +2420,7 @@ The younger son answered, "Yes, we have noticed a troubling trend in the last fe
 
 "We were unsure how to broach the subject, unsure if perhaps these changes reflected some directive from the Crown itself."
 
-"I have not had any contact with the watcher, India is her name, since the ceremony."
+"I have not had any contact with the watcher or the priests since the ceremony."
 
 "Which is a concerned fact in of itself."
 
@@ -2694,7 +2694,7 @@ The Queen studied Lord Burrington for a moment. He looked as if everything they 
 
 "Perhaps, but not like the monarch. Besides, can I really be faulted if you saw too much of yourself in that scene? That was not the intention. It was mere commentary on the role of a monarch."
 
-"Thief and child abuser?"
+"Monsters who steal and beat their subjects?"
 
 "Now I wouldn't put it that way, but can you deny that the monarchy is premised on the notion of seizing and maintained that which is not its own."
 
@@ -2718,8 +2718,76 @@ The Queen studied Lord Burrington for a moment. He looked as if everything they 
 
 He was more persistent that she thought he would be. He finally caught up with her again and said, "Please, your majesty, do not run off like this. I would very much like to introduce you to the artist I mentioned earlier. I think you will find his work most intruiging and well worth your time."
 
-"More so than you travelling band of cut-throats?"
+"More so than your travelling band of cut-throats?"
 
 "Yes, more than that, I promise."
 
 ***
+
+The Queen declined to take a carriage to the artist's studio, wanting to walk off her frustration and hide her verxation with Lord Burrington. She kept her brisk stride and he managed to keep up with her. 
+
+As they walked, he tried to sell her on the artist they were about to visit, "Now I must admit that his works may not suit your taste, but I think if it sit with the images and the technique you'll find something very unique that's being offered. I think it is the technique that stands out the most. This artist uses very bold brushwork and layers colors in a most unusual, inventive way. I felt truly lucky when I happened upon this work."
+
+"And how did you discover this hidden prodigy?" the Queen asked, not trying to be overly provacative, but unable to let some of her frustration slip into her word choice.
+
+"Well, it just so happens that our lovely candidate for the observer has an older brother. I discovered them as a pair, as it were. I marvelled that a family could produce two offspring with such unique sparks of creativity and inginuity."
+
+"I did not realize that the observer was creative or ingenous. What is her particular talent?"
+
+"Well she didn't have a specific craft, but as young as she was I'm sure she could have been cultivated into a fine talent. Call it a patron's intuition."
+
+"I see, and her brother, this artist is looking for a patron."
+
+"Yes, and I believe his work interest you greatly."
+
+They arrived at a section of the town that had once beeen horse stables. Once those moved to the outer edge of the city, the stables were converted into workshops for craftsmen and artists. They walked up a narrow flight of stairs and entered the artist's studio.
+
+In the late afternoon sun, the studio seemed cramped and small. The earthy smell of pigments hit her nose when they walked in. The Queen scanned the room at that various paintins and drawings that here hanging pell-mell on the wall and from the rafters. The artist was working on a large canvas propped against the far wall. He must had stopped in the middle of a brush stroke, because he stood there in front of the painting, tapping his foot impatiently. Then in a flurry he applied several dense layers of paint in the area he was working on.
+
+"We have arrived, and I have a special vistor," Lord Burrington said. 
+
+The artist turned and looked his visitors up and down. "I didn't realize that my door was open to visitors."
+
+"No, well I have brought you a very special visitor."
+
+"One worth interrupting my work over."
+
+"I should say so."
+
+"And does this visitor have a name?"
+
+Lord Burrington looked at her and simply said, "She has requested anonmyity until we reach an understanding. Should she become a patron, all will be come clear."
+
+The artist huffed and turned back to his work, "Very well, show her around like you have shown aroudn the others. Please keep your interruptions to a minimum." She was not sure if she should be offended by the artists impudence or take pleasure in his clear disdain for Lord Burrington. Now that she had met this scurrulous person there was a chance she might actualy patronize him.  
+
+They went around the small space looking at the artists work. It was, indeed, inventive and unusual, but also something about the technique repelled her. Many of the canvases were smothered in dark hues, as if they had been doused in fire. Smears of dark earthtones seemed to erupt out of the voids that suffocated the margins of the paintings. There was something suffocating and oppressive about them.
+
+She studied the imagery better. Human forms were contorted, like a buckets of limbs and skin that someone had thrown together. Many of the figures cried out in agony, faces lifted to the sky, not out of hope, but more like looking for an escape. Figures seemed to pile on each other, tearing at one another. Cities were on fire, villages burned. The few flashes of bright color looked like the glint of sun off of armor and weapons.
+
+Lord Burrington leaned in and whispered, "Remarkable work, don't you think. I find it captures something I didn't even realized needed to be captured."
+
+"It is remarkable, but agonizing as well. Do you relish that feeling, Lord Burrington."
+
+"Relish no, but it speaks to something...true in me."
+
+"I did not realize you were such a devoted seeker of truth."
+
+"It may not be my natural state, but work like this calls me to it."
+
+"I see, may I speak with the artist."
+
+"Certainly, of course."
+
+She walked up beside the artist, who did, in fact stop his painting, as if realizing who she was now that she was up close. He did not seemed concered about hosting the queen in his studio or the possibility of her becoming his patron. "I would like to ask you about your work."
+
+"Yes, what about it?"
+
+"I am curious where you draw inspiration for your images. Do you paint the world as you see it?"
+
+"I am visionary, not a recorder. I leave that to my little sister."
+
+"I see, and what are these visions you see."
+
+"The future. I paint what will be."
+
+
