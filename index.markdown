@@ -2876,3 +2876,71 @@ The captain of the guard looked grave and determined. He started out of the carr
 
 "The spy was a woman, a she not a he."
 
+"Of course." They road along for several more minutes in silence. The Queen could tell the captain wanted to say something but was hesitating. "Captain, I feel you have something else to say to me. Please share it."
+
+"Your majesty, your actions today..."
+
+"Were rash and showed poor judgment. I put myself and the monarchy in danger. Who knows what could have happened. Do not worry, Captain, I have already lectured myself sufficiently. I had a strong motivation to take the actions I did."
+
+"May I ask if it had something to do with Lord Burrington."
+
+"I don't care to share the details of my personal life, Captain. You know that."
+
+"I did not mean to imply. But, pardon me for saying, I don't think you spent the afternoon with Lord Burrington for personal reasons."
+
+"That is very speculative, Captain." She smiled and added, "But also perceptive. Tell me, do you think I can trust Lord Burrington?"
+
+"It is not proper for me to speculate about the lord's conduct."
+
+"No, it's quite alright, I am asking. No, I am ordering you to share your opinion."
+
+"If I were to speak freely, then I would say, no, you cannot trust him. I believe that Lord Burrington's actions are guided by one principal interest."
+
+"And that would be?"
+
+"Lord Burrington, my lady."
+
+***
+
+The Queen's guards whisked her into her private study. When she entered the room, she was surprised to see the archvist there, pacing the room. When he heard the door open, he turned suddenly, but didn't seem to notice right away that she was there. He seemed to be a world away until he realized she was there, "Your majesty, there has been a terrible tragedy."
+
+"Is it your father? Is he okay?"
+
+"He was no worse when he left, but that is not the tragedy. It's the archive, your majesty. It's been overtaken"
+
+"Overtaken, by who?"
+
+"I can't say for sure. I barely escaped the soldiers who were occupying the tower. But there were priests among the soldiers, your majesty. And one priest seemed to be leading them, a young priest."
+
+"Could it have been the High Priest?" she asked. 
+
+"Perhaps, again, it was very chaotic. I can't say for sure. There is something else. I could be wrong, but I thought I caught a glimpse of a figure wearing the cloak moving through the scene, recording what was taking place."
+
+"But why would the priests want to seize the archive and record it in this way? Has something like this ever happened?"
+
+"I don't know. There have historically been tensions between the priests and the archvisits, of course. At one point in time, there was a record of a duel taking place, but it is unclear if such a thing ever came to pass."
+
+"And what of your father and brother?"
+
+"They have fled and are on their way here your majesty. I fear the kingdom is at ill at ease though. As I journyed here, people eyed me with sucpicion, even fear. I am not a seasoned traveler, but I cannot remember a time when you could not travel freely through the kingdom."
+
+"Yes, it seems there is a plot afoot, I just don't know how it will play out. I must think about this and meet with my advisors. Can you be available for provide witness?"
+
+"Of course, but your majesty there is one more thing you should know."
+
+"What is that?"
+
+"The scroll that I shared with you when you visited the archive, that details how your ancestors came to power and how they used the observer."
+
+"Yes."
+
+"It is no longer in my posession, your majesty. I was unable to secure it before I left."
+
+"So the High Priest may have that document in his hands."
+
+"Yes."
+
+"Then that must figure into the plan somehow."
+
+***
+
