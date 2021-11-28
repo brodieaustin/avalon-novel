@@ -2944,3 +2944,30 @@ The Queen's guards whisked her into her private study. When she entered the room
 
 ***
 
+The meeting the Queen wished to hold never happened. The senior advisor could not be located and there were whispers that he had fled the city and disappeared. Before they could start, for the second time today, guards burst into the council chamber along with her captain, "We must leave the city now," he said, his face full of alarm, perhaps even fear.
+
+The guards led the Queen through the narrow obscure paths the servants took, much like the one she used to sneak out of the house earlier. As they walked, the captain explained, "An army was spotted in encampment two days ride from the city. Our rider was nearly captured and suffered a mortal injury. He made it here to spread the news before he died."
+
+"That is tragic. Please be sure that his family is compensated."
+
+"We will do our best, your highness, unfortunately, he died very much in the public's view. Word is spreading now and I fear a general mood of panic has seized the city. People are beginning to evacuate or retreat to the old part of the city."
+
+"And you believe this threat, believe that this army is making its way here?"
+
+"I do, your majesty. Other stories have started to emerge of soldiers movements, whispers that suddenly make a clear picture of what has been happeneing."
+
+"Are there priests with the soldiers?"
+
+"I cannot say at this time."
+
+"I must know. Please find out."
+
+"Yes, your majesty"
+
+They finally made their way outside where there were two carriages waiting. Her maid was dressed in one of her older dresses, but bore a strikign resemblance to herself. The captain explained, "A body double, your majesty. Each carriage will take a different route. Only myself and the driver know the routes. I have selected these men personally and trust them."
+
+"And the final destination."
+
+"We plan to evacuate you to your father's estate. It is remote and puts more distance between yourself and the army."
+
+"Very well, let's not waste more time then."
