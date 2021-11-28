@@ -2396,7 +2396,7 @@ They returned to the archive's entrance. The older brother stood in the center o
 
 Lord Malcolm replied, "This is important work, your majesty. Take all the time you need."
 
-# Chapter 8: To Turn You On #
+***
 
 The fact that Lord Malcolm normally ate a very early dinner and retired early worked well for the Queen. After the simple meal, the Queen announced that she would like to walk to the archive for her consultation. 
 
@@ -2564,7 +2564,7 @@ The archivist shook his head, "Even they don't know. You are the first person I 
 
 "Your words are dire and I hope what you saw does not come to pass, but I fear for the worse. Thank you for takign this chance, for sharing this with me."
 
-***
+# Chapter 8: To Turn You On #
 
 "So, I understand that you have returned from a visit with Lord Malcom," were the words welcoming her when she finally arrived back home.
 
@@ -2784,10 +2784,95 @@ She walked up beside the artist, who did, in fact stop his painting, as if reali
 
 "I am curious where you draw inspiration for your images. Do you paint the world as you see it?"
 
-"I am visionary, not a recorder. I leave that to my little sister."
+"I am a visionary, not a recorder. I do not have a cloak hanging up in my closet. I leave that to my little sister."
 
 "I see, and what are these visions you see."
 
 "The future. I paint what will be."
 
+"And all of this," the Queen said gesturing to the paintings. "All of this is what will be?"
+
+"I believe so, yes. This is the future as I have seen it. Does it disturb you or offend you in some way?"
+
+"Surprises me. And I hope, sincereley hope that you are wrong."
+
+"We shall see. In the mean time, I must finish working on this section of my painting before the light gives out and goes away."
+
+Lord Burrington stepped in to say, "Then we will take our leave. And I will be in touch. Let my people know if you need anything."
+
+"I have let them know that I have no wine to drink, and no one will bring me wine."
+
+The Queen replied, "I will have something sent to you from my personal cellar, if that is agreeable."
+
+The artist bowed low, perhaps in mockery, though perhaps in genuine apprecatation, "Then I must count you as one of the true patrons of the arts."
+
+***
+
+Before returning home, Lord Burrington steered them towards a small sidewalk cafe that served strong coffee. The Queen welcomed the moment to rest and refresh herself, though she was growing tired of Lord Burrington's company. Now that they had visited the artist, he spoke mostly about his various connections and acquantainces, of lavish parties and society gossip. She listened in a state of detatched curiousity, but realized that she was not going to be able to gather much useful intelligence from him. 
+
+The waiter did a double take when he returned with their coffees and placed one in front of the Queen. She still wore her veiled hat so she was not completley conspicuous. The waiter seemed to think that the idea that he was serving the queen was too ludicrous to be real and shook and his and returned his duties.
+
+As they sipped their coffees, Lord Burrington broached the subject of the artist, "So, are you interesting in patronizing this talent?"
+
+"I agree that he is talented, and very unusual in all of the ways you point out. He does seem to have a number of peculiarities."
+
+"Such as."
+
+"He seem to be very contemptuous of his position as artist needing patrons. I feel he would be more content to somehow paint and not worry abotu the concerns of daily life at all."
+
+"Perhaps so, and perhaps true of many artist, but they live in our world and our world demands that artists have patrons."
+
+"But to what end?"
+
+"To reach a larger audience, to affect people, to do the things that art is intended to do."
+
+"Yes, I grant you that. I wonder how it look were to Crown to patronize an artist like this."
+
+"Like what exactly?"
+
+"So obsessed with dissolution and destruction. It doesn't portray a very positive view of the future."
+
+"I don't see it that way at all. Perhaps people, people who pay attention to such things, will see it as a sign."
+
+"A sign of what"
+
+"A sign that the Queen is paying attention."
+
+"Yes, but paying attention to what, I feel you are speaking in circles. In any case, I am, in fact, interested in patronizing this young artist, but I feel that I must do so on a personal basis, not as an act of the Crown."
+
+Lord Burrington looked at her shrewdly, "Interesting. Is this a difference without a distinction?"
+
+"Not for me, not at this point. It would give me personal pleasure to support him, but the monarch is indifferent to his work."
+
+"Fascinating, I have never heard you speak of yourself in such terms before."
+
+"Perhaps I have never had an occasion to do so before now..." From the outside, someone might have interpreted this banter as flirtation between two seemingly well-off individuals, puttin their fliration on display for all to see. Little would they know that these two people were really poking and proding each other, testing each other to see how the other might react to this phrase or this gesture. They were testing each others limits and capacities.
+
+It was clear to her that Lord Burrington had not inteded this afternoon to be a mere frivolous distraction. She felt strongly that his choices were meant to communicate something to her.
+
+Before she could settle on that this something might be, a small company of soldiers appeared around them on the street. The captain of the guard stepped in the space they left. He saluted the Queen and nodded to Lord Burrington, "Your majesty, you are wanted back at your house. There is an urgent matter that requires your attention."
+
+The Queen stood up, noticing the stares of the everyone in the cafe, on the street, and in the shop doorways, staring at her. Two shoulders gathered her up and whisked her away, down the street and into a carriage. They sped off down the street, which had been emptied of other traffic moments before they arrived, and completely unbeknowst to her.
+
+# Chapter 9: True to Life #
+
+The captain of the guard looked grave and determined. He started out of the carriages windows, alternating between both sides. The Queen was finally able to get his attention and asked the first question that came to mind, "How did you find me?"
+
+"One of our spymaster's spies saw you leaving the house earlier in a clandestine fashion and tailed you."
+
+"I was followed that whole time and didn't realize it."
+
+"Yes, your majesty. I apologize for the deception, but they spy was nto sure of the proper etiquette."
+
+"Well, I am relieved that our spies are committed to such good manners. In the future I would prefer to know when I had secre agents of the Crown secretly following me, the crown's wearer."
+
+"Yes, your majesty. I apologize."
+
+"No apology necessary, I'm sure the spy was doing what he thought was right."
+
+"She, your majesty."
+
+"What's that?"
+
+"The spy was a woman, a she not a he."
 
