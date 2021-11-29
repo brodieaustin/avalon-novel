@@ -2942,8 +2942,6 @@ The Queen's guards whisked her into her private study. When she entered the room
 
 "Then that must figure into the plan somehow."
 
-***
-
 The meeting the Queen wished to hold never happened. The senior advisor could not be located and there were whispers that he had fled the city and disappeared. Before they could start, for the second time today, guards burst into the council chamber along with her captain, "We must leave the city now," he said, his face full of alarm, perhaps even fear.
 
 The guards led the Queen through the narrow obscure paths the servants took, much like the one she used to sneak out of the house earlier. As they walked, the captain explained, "An army was spotted in encampment two days ride from the city. Our rider was nearly captured and suffered a mortal injury. He made it here to spread the news before he died."
@@ -2964,10 +2962,144 @@ The guards led the Queen through the narrow obscure paths the servants took, muc
 
 "Yes, your majesty"
 
-They finally made their way outside where there were two carriages waiting. Her maid was dressed in one of her older dresses, but bore a strikign resemblance to herself. The captain explained, "A body double, your majesty. Each carriage will take a different route. Only myself and the driver know the routes. I have selected these men personally and trust them."
+They finally made their way outside where there were two carriages waiting. A woman was dressed in one of her older dresses, but bore a strikign resemblance to herself. The captain explained, "Your spy, my lady. She will be a body double." The spy who had tailed the Queen earlier curtseyed to the Queen. The captain continued, "Each carriage will take a different route. Only myself and the driver know the routes. I have selected these men personally and trust them."
 
 "And the final destination."
 
 "We plan to evacuate you to your father's estate. It is remote and puts more distance between yourself and the army."
 
 "Very well, let's not waste more time then."
+
+***
+
+For two days, a small company of soliders on horseback, along with the captain, rode alongside the carriage. They took little known rodes, sometimes little more than deerpaths through forests and fields. They stayed away from villages and camped in areas that would not be seen from any roads or paths.
+
+The Queen experienced a strange mixture of boredom and anxiety as they traveled. Every distant shout, a whinny of a horse, or a wayward sound of a bird overhread sent her into a panic. At the same time, shetook no interest in the landscape or country side, besides she had been coudl not look outside the carriage since the window had been curtained then boarded up to protect her.
+
+She sat in near total darkness for several days waiting, wainting for news, waiting to arrive. Most of all, she waited for the endgame of whatever machinations were being played out in the kingdom. She almost couldn't believe that mere days ago, she was walking in the park on a pleasant afternoon with Lord Burrington, while her kingdom was possibly in the midst of being overthrown by none other than Lord Burrington and the High Priest.
+
+She tried to image what they would do with the kingdom, what their ultimate aim was, but she could think of nothing. Was the High Priest's personal dislike of her enough to motivate him to bring her reign to an end? Perhaps so. He seemed very changed when she met him last at the citadel. Perhaps this was all Lord Burrington's doing, perhaps the High Priest was just a plaything in this game. She had no way of knowing sitting in her dark carriage.
+
+Two days into the journey to her father's estate, their carriage was overtaken by a messengar on horseback. The carriage and the handful of guards stopped to receive the messengar. The Queen sat in silence in the carriage, looking straight ahead. Finally, there was a knock at the carriage door and the captain appeared. "What is the news?" the Queen asked.
+
+"The city has been overrun, my lady."
+
+"And the casualties?"
+
+"Unclear at this time, though the messengar reported seeing plumes of smoke as he rode away from the city."
+
+"They're setting fire to the city?"
+
+"Perhaps, your majesty. Or it could be accidental. We cannot say now."
+
+"Very well, at least this amounts to a declaration of war. There is nothing to do now but to carry on."
+
+The traveled for another day before the reached the edge of the estate. When they finally stopped outside the great house, the Queen was surpised by how wild and overgrown everything looked. The house itself was in disrepair. The once warm and inviting, though imposing house, seemed lifeless and cold now.
+
+Inside, what furniture was left was still covered. Everything was dusty. The Queen ran her finger along the top of the long table in the entryway and left a finger wide track in the dust. She looked around to see if there were any staff working in the house. A small ragged crew entered the entry way to greet her. 
+
+She nodded and greeted each one of them before retiring upstairs. As she walked with the captain of the guard, she commented, "That is a small group of servants for the house."
+
+"I apologize your majesty. These were the only people we could find that were still being retained to work in the house should we return."
+
+"And the others?"
+
+"Most refused since they had not been compensated by the crown in years."
+
+"We stopped paying them?"
+
+"It appears that way. This may be a temporary waypoint anyway."
+
+"I would like th discuss strategy as soon as possible."
+
+The captain stopped in the hall, "Strategy, my lady? Strategy for what?"
+
+"For conducting the war? I would like to know when I can expect the generals to arrive to discuss our next move."
+
+"I regret to say this, but there won't be a next move."
+
+"What do you mean?"
+
+"I mean to say that I don't think we can rely on there being an army to fight in your name anymore. The army was barebones enough as it is. This rebellion may have been the final snap to break it."
+
+"But this is speculation on your part, you don't know for a fact?"
+
+"That is true. I hope to have more information soon, but from the hints that the messengar dropped, I believe this to be the case."
+
+"So what do we do then?"
+
+"We wait until we cannot wait any longer and then we run."
+
+"And after that?"
+
+"We continue to run until we can secure your safety."
+
+"And if that cannot be done?"
+
+"Then you will no longer require my services because I will most likely be dead. After that, I cannot say."
+
+The Queen continued to her room in silence. When she stepped into her old room, she went to the bed and flung herself down on it, much like she would have done when she was younger and fed up with some stricture being delieved to her by her mother. Dust floated up from the covers and glittered in dim light that came in the dirty windows.
+
+She rolled on her back and an unexpected through floated through her mind. "I want to see Avalon. I wish Avalon was here."
+
+***
+
+The next morning she was served a cold breakfast. The old woman who brough it up to her room had trembling hands and made the the dishes and silverware clink as she walked. "I apologize for the cold breakfast, my lady, we were instructed that we could not light a fire for fear of detection."
+
+"That is quite alright. Thank you."
+
+Before she left the room, the old woman stopped at the door and said, "Beg your pardon, your majesty. May I speak my mind freely?"
+
+The queen turned away from her simple breakfast and replied, "Yes, please do."
+
+"I served your father for many years. I was a loyal servant."
+
+"I thank you for your service."
+
+"But we haven't been treated well in the recent times and it is a crying shame."
+
+"I didn't realize. I am truly sorry for that."
+
+"Whether you knew or not, my lady, it was done in your name. And it's a pity it happened that way."
+
+"I agree. I hope we can fix this somehow."
+
+"Perhaps we might. Thank you, my lady. I feel much better now."
+
+The servant took her leave and the Queen ate her breakfast. She went downstairs to the library where her father often worked and waited for news. The captain was supposed to meet with her at midday to update her on any information he had collected. They needed to determine their next steps, since determining a strategy was out of the question.
+
+The captain was late, leaving the Queen to sit in the library and peruse the books there. She had brough many of the volumes, like the ones that Lord Burrington had perused in her parlor not that long agao, that had sentimental value to her to her home, her former home, in the city. Most of what was left here were treatises about plants and flowers, books of legal theory, and other topics that griped her father's interest from time to time.
+
+As far as she knew, he had built up this library on his own, maybe built off of a few inherited volumes. But sitting here was like sitting inside a map of his mind. As she flipped through the dense esoteric language that many of them contained, she realized that she had no more access to the mind here than she did when the man was alive.
+
+She wondered if it was true that her father was detached. He could be warm and inviting when he wanted. He was not frivolous, but could be jolly, even fun at times. But he did retire from the world, in a sense, or demanded that the world meet him on his terms rather than the other way around. Perhaps she had a streak of this as well. 
+
+The captain finally arrived for their meeting, his boots and cape splattered with wet and mud. He stopped short of the old worn rug in the middle of the library. "I have just returned from a long morning's ride and have news to share with you."
+
+"Any of it good?"
+
+"No, I am afraid not. In fact, I fear that the first piece of news is tragic. The spy who dressed as your double was overtaken by soliders and killed a day into her journey. All of the soldiers traveling with her were killed as well, all but one who seemed to have left the party early."
+
+"Were they betrayed somehow?"
+
+"That is my fear. Which means we can trust no one. I recomend that we dismiss the house staff. It was a mistake bringin them on."
+
+"Do you really think that is necessary? I spoke with one this morning and she seemd very pleasant."
+
+"Your majesty, these are dire times and we must assume the worse. May I dismiss the staff?"
+
+"Very well, I'm not sure how this will help, since they already know we are here, but I approve."
+
+"Good, I will inform them immediately. In the meantime, I think we should stay here tonight then prepare to leave in the morning."
+
+"That is fine with me. Where will we go?"
+
+"I would prefer to keep your next desintation a secret for now, we cannot know for sure if someone is watching or listenting or not."
+
+"Captain, surely you cannot belive this?"
+
+"I must believe anything in the name of performing my sworn duty to keep you safe." The captain bowed and left the room. 
+
+A few moments later, the Queen heard a commotion outside. She went to the window as saw that the captain had lined up the handful of staff on the lawn. They were confused and scared and plading with the captain. The old woman she had spoken with earlier was trembling and looking frightened for her life.
+
+The Queen assumed they were just confused by the sudden change in their circumstances and would go about their business. She started to turn away from the window but heard a loud scream. She looked again and saw that the captain and another soldier had cut down the staff with thier swords. The old bodies lay in a bloody heap on the grass. 
