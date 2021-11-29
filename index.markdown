@@ -3103,3 +3103,42 @@ The captain finally arrived for their meeting, his boots and cape splattered wit
 A few moments later, the Queen heard a commotion outside. She went to the window as saw that the captain had lined up the handful of staff on the lawn. They were confused and scared and plading with the captain. The old woman she had spoken with earlier was trembling and looking frightened for her life.
 
 The Queen assumed they were just confused by the sudden change in their circumstances and would go about their business. She started to turn away from the window but heard a loud scream. She looked again and saw that the captain and another soldier had cut down the staff with thier swords. The old bodies lay in a bloody heap on the grass. 
+
+In shock, she backed away from the window, nearly stumbling over a chair that lay in her way. She caught herself but crumpled to the floor. Her vision went out of focus as she repeated to herself over and over, "How did it come to this?"
+
+***
+
+The Queen did not leave her room until the next morning. She could hear the captain pacing outside her door, anxioulsy awaiting for her. They were due to leave soon for the undisclosed location.
+
+As she readied herself, she wondered if she could trust the Captain. He had never given her any reason not to trust him until yesterday. Killing the servants seemed excessive and unnecessary to her. Was her life really worth this, particularly if her reign was coming to an end either way? She determined that her demise would not be accompanied by a trail of dead bodies.
+
+She nearly ran into the Captain as she left her room, lost in thought about how best to address what happened yesterday. Before she could broach the subject though, they heard distant shouting from outside and a screeching sound like an alarm. The Captain grabbed her by the wrist and began dashing down the hall, "We must leave. The advanced guards have spotted a threat."
+
+"So they've found us."
+
+"I'm afraid so."
+
+She stopped sharply and wrenched her wrist free. "How am I to trust you then?"
+
+"Your majesty? I don't understand."
+
+"The double was found out. I saw you kill those servants yesterday. A mere half day later and we've been found out. What else should think?"
+
+"You think that I have betrayed you?"
+
+"I am beginning to suspect."
+
+"I would never..." but his words were cut short by more shouting, this closer. A crashing sound of the door, clashing swords. A thud of a body. 
+
+The captain drew his sword. Will he strike me down here and now? the queen thought, frantically trying to decide how best to defend herself. The captain lunged forward, but gave her a push. "Go, go now. I will meet the threat. Alone you should be able to escape."
+
+She turned and ran as fast as she could. She remebered that there was a hidden passage nearby, she could play there as a little girl, until her mother panicked when she could not be found and told her, "It is not proper for princesses to hide like a thief in her own house."
+
+This passage emerged into a room that had once been a convalensce room when her mother took ill later in her life. Everything was draped in ghostly coverings. She nearly sneezed from the dust but held it back for fear of being discovered. When her mother was ill, a balcony and steps down to the garden had been added so that she could take fresh air and walk without coming into contact with others in the household.
+
+She opened the door and raced down the stairs, fleeing into the maze of shrubs and walls that made up the gardens closets to the house. She heard more cries raised, but these were cries of soldeirs communicatign to each other. They were looking for her. She heard branches and plants crumble under heave feet and knew she needed somewhere to hide. 
+
+From the corner of her eye, she caught sight of the old greenhouse and dashed towards it. Many of the panes of glass were cracked and broken. Dirty light seeped in through the dirty panes. She rushed past rows and rows of dead plants, broken pots. Everything was crumpled up and decayed.
+
+She hid away in a dark corner of the green house, behind a row of large pots that had once held exotic trees that her father imported from far away. As she crouched there, she remembered that the trees were small but bore small bittersweet fruit. She would screw up her nose as a child, but insist on eating more even when her father warned her that it might make her sick.
+
