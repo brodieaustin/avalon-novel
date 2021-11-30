@@ -760,8 +760,6 @@ They walked together down her wing of the house to the where the grand central s
 
 In this way, she thought, her father and mother seemed like such opposites, such an unlikely pairing. But she remembered that often in their royal lives forces beyond their control could end up shaping what, for other people, were deeply personal decisions. Not so for them. Or so she had been told.
 
-<span id="update"></span>
-
 ***
 
 Despite the ball being announced in such a haphazard way, the guests seemed too numerous for the princess to count. She was able to recall or remember the first handful of guests that arrived. After that, she lost track of the faces, the dresses, the compliments.
@@ -1104,7 +1102,7 @@ Her mother shook her head, "Not fully, but I have my suspicions. The priests are
 
 The princess inched forward to her mother and laid her head on her shoulder. Her mother had always acted more like the Queen who happened to her mother, than the other way around. Her care, and this moment of affection, was unusual, seemed to come out of nowhere. But the princess welcomed it. So many things were changing, but for a moment she felt a sense of comfort and relief.
 
- Her mother wiped her eyes dry with a handkerchief. "I've already laid out your things. You'll be wearing sturdy boots and your heavy winter cloak. It's cold this morning. And we're traveling to the coast, where it is even colder."
+Her mother wiped her eyes dry with a handkerchief. "I've already laid out your things. You'll be wearing sturdy boots and your heavy winter cloak. It's cold this morning. And we're traveling to the coast, where it is even colder."
 
 Once she was dressed, the princess went downstairs to the front of the house. Outside, a three carriages were ready and waiting for thier passengers. The horses' breath rolled in clouds in the cold air.
 
@@ -3141,4 +3139,74 @@ She opened the door and raced down the stairs, fleeing into the maze of shrubs a
 From the corner of her eye, she caught sight of the old greenhouse and dashed towards it. Many of the panes of glass were cracked and broken. Dirty light seeped in through the dirty panes. She rushed past rows and rows of dead plants, broken pots. Everything was crumpled up and decayed.
 
 She hid away in a dark corner of the green house, behind a row of large pots that had once held exotic trees that her father imported from far away. As she crouched there, she remembered that the trees were small but bore small bittersweet fruit. She would screw up her nose as a child, but insist on eating more even when her father warned her that it might make her sick.
+
+Soldiers were inside the greenhouse now, knocking and crashing their way through it, looking for her. She tried to squeeze back as far as she could into the dark, but a soldier finally peered down and shouted out, "She's over here. I've found her." Quickly another soldier was by his side. They reached in to grab her as if reaching for a caged, cornered animal. She started to twist and kick, more out of instinct than any clear idea that she could get away and flee.
+
+Together the soldiers finally got a firm enough grasp on her to drag her out from her hiding place. Her head bumped against one of the large pots as they did so. They let her legs drop on the dirty ground, then gripped her under her arms and hoisted her up. She still fought against them, but they were able to drag her out of the greenhouse without much exertion.
+
+"Where are you taking me?" she cried out, but they wouldn't answer her. The looked ahead, grimly doing their duty, whatever their duty might be.
+
+Apparently it was to take her into the orchard. They dragged her flailing form past the dead and twisted trees in the orchard to the center point where the rocks stood, where she had found the boy, Leif sick and miserable after the High Priest punished him.
+
+He was there, the High Priest, rather the boy who was a man know who became the High Priest. Now he wasn't sick and supine and moaning in despair. He stood confidently, arms crossed, in front of the rock wall. He had been waiting for her, waiting for her in this symbolic place, which spoke to his confidence that she would be found and that a confrontation would happen here.
+
+The soldiers dropped her to the ground. Her head fell forward and stayed that way, just as she stayed on her hands and knees in the overgrown grass. The High Priest instructed the soliders to leave them and they disappeared into the orchard somewhere.
+
+"You should stand up, your highness. There is no reason to prostrate yourself before me. Those days are over."
+
+She wanted to resist being commanded this way, but she felt an urge to confront him head on, to look him in the eyes. If she was going to be executed, he wanted him to have to see her, confront her as she was, not just a concept or idea.
+
+She slowly rose up, brushed herself off and stared at him.
+
+"That is better now. You are more like a shadow of former self than a cracked image. I prefer it this way, actually. There is no need for dramatics." He paused and looked around him, "The apple trees are dead. That's good. I can still taste them to this day."
+
+"Is that what this is about? A little boy who was punished with apples?"
+
+The High Priest shook his head, "No...but in a sense yes, but not in the way you mean."
+
+"Why here? Why are we standing here of all places?"
+
+"Does it surprise you?"
+
+"You said when I spoke to you at the citadel that you did not like to dwell on these days."
+
+"That is true, and yet I have thought about that day almost every day since." He started to pace around the weedy clearing, "This grass, those trees, these rocks. The sun, the air. It's not perfect, today. This isn't exactly like it was. But this...this is very close."
+
+"Leif, this is madness. Armies marching, burning towns, terrorizing people. How did this start? Why are you doing this?"
+
+"How did this start? Now, that, my lady, is an interesting question." He produced a scroll from inside the long cut jacket he wore instead of robes. He held it up and must have seen a flash of recnogition in her eyes. "I can see that you know what this is. Have you read it?" She shook her head affirmately. "Then you know that what is happening didn't start with me. It started with you. With your people and their lust for power. What I am doing is putting an end to this, rewriting the story, divering the plot in a new direction."
+
+"This feels like some kind of punishment."
+
+"Good, it should. That is the intention."
+
+"But what have I done?"
+
+"Done, didn't do. It doesn't matter. Can't you understand that this is bigger you and me? Bigger than that fool Lord Burrington. I am wresting this," he shook the scroll, "out of your hands and starting anew."
+
+"Putting the priesthood in charge, ruling from behind the heavy walls of the citadel. How will that be any better? And the houses? How will you appease and control the lords. Your new story won't look that different. Even now, the soliders you've sent out are fighting like soldiers always have."
+
+"If we were in a debating society, these would all be interesting points. But I have seen how the monarchy has used people, warped people for its own selfish ends, then cast them aside. And no, I'm not just talking about that day so long ago when a young boy was forced to witness things that terrified me until I was old enough to master that fear. I mastered it by shaping it into anger then a determination to bring it all to an end."
+
+"Even if it means destroying everything in your path."
+
+"Maybe. Perhaps. That is not yet written in the scrolls. The precious archive can tell us knothign about that. So, it remains to be seen what will happen."
+
+"Will this be the place? Where I meet my end?"
+
+"That is the plan. That is my intention." He closed his eyes and breathed deeply as if savoring all the sensations of a memory. "This moment has been in my thoughts for a very, very long time."
+
+Just as he opened his eyes, the captain of the guard came crashing into the clearing, bloodied but wielding an even bloodier sword. He raised an furious cry and charged at the High Priest. The High Priest easily dodged the wounded captain, and seen enough more soldiers were entering the fray. 
+
+The Queen saw her chance and in the confusion, slipped away and started running faster than she had ever run in her life.
+
+# Chapter 10: Tara #
+
+The Queen, who wasn't a queen anymore wandered for days after escaping the soliders and the High Priest. Through some combination of luck or careful hiding, she was able to elude the search parties that were sent out looking for her. 
+
+After several days, it seemed like the concerted efforts to find her had stopped. She assumed that at this point, the soldiers would be dispatched to small villages and hamlets that dotted the countryside around the estate. 
+
+She didn't know this land well, but a few recognizable features in the land suggested to her that she was heading towards the coastline, just as she had so many years ago when Avalon was sent away. She had repeated that journey several more times before she finally chose her own observer.
+
+By now she was feeling weak and tired. She sipped water when she crossed a muddy stream, or found rainwater accumulated in a plant. She lived off of mushrooms and birds eggs that she could find. The nights were getting colder to, so found herself huddling in piles of leaves for warmth.
 
