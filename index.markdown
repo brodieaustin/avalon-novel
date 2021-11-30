@@ -3210,3 +3210,67 @@ She didn't know this land well, but a few recognizable features in the land sugg
 
 By now she was feeling weak and tired. She sipped water when she crossed a muddy stream, or found rainwater accumulated in a plant. She lived off of mushrooms and birds eggs that she could find. The nights were getting colder to, so found herself huddling in piles of leaves for warmth.
 
+After another day of walking, she could hear the faint crash of waves in the distance. She ran forward and finally could see the sea, sunlight playing on its surface cutting at, sparkling like knives.  She walked over weedy dunes and finally reached the hard packed sand that stretched into the distance in either direction.
+
+She took off the muddy boots that she had been wearing up till now, tied them together, walked to the spot where the waves rolled over adn darkened the sand before retreating back into the water. She turned and started walking along the sand, in the direction her instint told her go. 
+
+She was following the sun's path as it started to set in the distance, dipping into the water and spreading it's own spray of color in the sky. She walked for the rest of the afternoon before she walked off of the beach and into a brushy area near the shoreline. 
+
+When she woke up the next morning, she went back to the beach and could feel that her destination was near. The shoreline was becoming rockier and fell off into cliffs in the distance. The went was starting to get harsher too. She could remember even now how that wind had whipped at her face so many years ago.
+
+She walked for another few hours before she reached the area of the beach where it became truly rocky. The water churned here and threw spray everywhere. She looked around and, true to her memory, she saw a boatman's hut built back away from the water. She walked up to it and knocked on the door. 
+
+An old man, older than she remembered, answered the door. "Yes? Can I help you?"
+
+He didn't recongize her, which didn't surprise her. She was dirty and dressed plainly. Besides she had been a younger woman when he saw her last. "I am looking for passage to an island."
+
+"I'm afraid I don't do that much anymore. My health has declined and, besides, what island? There are hundreds of islands out there."
+
+"I don't know for sure, I only know that the tide seems to know how to take you there."
+
+A younger man, though still older than her, joined the old boatman at the door, "Father, what is it?"
+
+"This woman showed up asking to be ferried to an island."
+
+The son looked at her, studied her. A flash of recognition crossed his face, but he tried not to outwardly show it. "You must excuse my father. We don't get many visitors here, at least not ones that appear on our doorstep."
+
+"I understand, but I have a very urgent need."
+
+The son looked out at the water, "The waters aren't settled right now. Conditions aren't good for making a crossing."
+
+"It is important. And urgent."
+
+"I understand, belive me, I want to help. Perhaps you could come inside and we can take you in the morning."
+
+The Queen immediately felt wary of the invitation. But this was a remote location that very few people knew about, even if the priests knew about it, it would take them days to catch up with her. She decided to risk it and entered the humble house.
+
+She slept soundly for the first time in several nights. The fire blazed all night and she was full after a hearty meal of fish stew. When the boatsman nudged her awake in the morning, the sun was not even up yet. She rubbed out the sleep from her eyes and asked, "What is it?"
+
+The boatsman's son whispered, "Word has spread about the events of the last few days. I know your situtation is precarious. I will take you where you want to go, but you must trust me and do exactly as I say."
+
+The Queen silently agreed. They ate a cold breakfast and headed outside to the horse and cart. "You must hide. We will ride into town. I have a fishing boat there that we can use to go out. That will draw less attention that another vessel."
+
+She lay in the back of the cart, surrounded by old crates that had been used to transport fish. The smell was horrendous, and made worse when the boatman's son threw a heavy cloth over her to conceal her.
+
+They started out, still in the dark, towards the town. The cart was rough and bounced on the rutts in the roads. She was used to her finely made and tuned carriages with carefully crafted springs to make riding more comfortable. In the back this cart, she was knocked around and jostled. 
+
+Fortunately, the ride only lasted a few hours until they reached the town. She could hear form under the covered the sound of sea birds crying. The sound under the cart changed to more wooden clack. She assumed this meant that they had reached the docks. 
+
+The cart stopped and the boatsman pulled back the edge of the cover, "Quickly, into the boat. You will need to hide there while I attend to my horse."
+
+Much like smuggled cargo, she was whisked into the boat and covered again. Sunlight was starting to spill through the rough weave in the fabric cloth. The boat rocked suddenly and she realized somehow was on the boat again. Her heart raced, hoping that it was the boatsman.
+
+Then she heard his voice say reassuringly, "We're ready now to push off." From under the cover, she could hear the repetitive splash of oars as the boatsman piloted them out further into the water. Then a crisp crackle as he unfurled the sail. At this point the boat began to pickup speed. 
+
+Once land was no longer in sight, the boatsman pulled back the cover said, "Stay down, but I think it's safe the remove the cover." Even though she stayed huddled down in the boat, it was a welcome relief not having the covering smothering her.
+
+"How long will it take to get there?"
+
+"Normally a half day, but it might take a spell longer."
+
+"Why is that?"
+
+"I'm being careful and trying to make it look like I'm actually out here fishing. So we may need to twist and turn our way there."
+
+She could not tell how subtle his deception really was. It felt like they more less kept on a straight course until the boatsman finally said, "I can finally see the island up ahead, if you want to look."
+
