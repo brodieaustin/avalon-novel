@@ -3274,3 +3274,32 @@ Once land was no longer in sight, the boatsman pulled back the cover said, "Stay
 
 She could not tell how subtle his deception really was. It felt like they more less kept on a straight course until the boatsman finally said, "I can finally see the island up ahead, if you want to look."
 
+She peeled back the heavy cloth and sat up in the boat. The sun and wind and salty spray stung her eyes. Once they adjusted she could see the quivering outline of this island ahead of the. Above a bird bounced in the wind with its wings spread out before veering off and diving to catch food.
+
+As they approached the island, the boatman lowered the sail and started to row again. The boat climbed and fell over each wave that surfaced then rolled to shore. After several minutes of exertion and help from the waves, the reached the shoreline. The boatsman hopped out into the water and pulled the boat ashore. 
+
+He helped the Queen out and looked around, "I don't know what to do now. Usually there is someone here waiting for us, like they knew we were coming. But I don't think anyone was expecting you."
+
+"No, I would guess not. You may leave now. I wish I had some way of thanking you properly."
+
+"Are you sure I should leave?" the boatsman looked around the empty shore and looked up at the sky. "It could storm tonight, might be a nasty place to find yourself stranded."
+
+"I will manage. You have done your part. You should leave and get back. I don't want any harm to come to you."
+
+"Very well. Maybe you'll be here the next time I travel to this island."
+
+"Maybe I will be. We will see."
+
+The boatman pushed the boat back into the water. Once inside, he turned the boat and began rowing back out to sea. She stood and watched as the boat grew smaller and smaller in the distance.
+
+Behind her she could hear something in the overgrown tree cover near the shore. She turned and saw a woman approaching her, familiar in the outline, but unfamiliar in the specifics. She took several steps forward before saying, "Avalon? Is that you?"
+
+"Your majesty? What are you doing here? Where are the others?"
+
+"There are no others. This isn't like the other times. I came to find you. Everything has changed, the kingdom has fallen apart. I'm no longer a queen."
+
+"I've only ever known you as a princess or a queen."
+
+"Myself as well. I suppose you should call me by name."
+
+"Then I will call you Tara and welcome you to the island. The other woman are waiting for me. Let's go join them."
