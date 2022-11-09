@@ -2,8 +2,6 @@
 layout: base
 ---
 
-Read the 2021 version [here](/2021)
-
 # Chapter 1 #
 
 "Avalon!" Tara called out from her threshold between her bedroom and the upstairs hall. "Avalon!" But the footsteps that grew louder up the stairs were not Avalon's at all. They lacked the purposeful, elegeant glide that Avalon's unmistakable footsteps had. These footsteps were purposeful, for sure, but each thud announced a walker stepping with forced purpose, almost willing each step to land, one after the other.
