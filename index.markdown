@@ -398,7 +398,82 @@ Finally, Ms. Reedy pulled her away and rearranged her dress. She wiped a suggest
 
 Tara felt serious all of a sudden and considered what Ms. Reedy said. She nodded her head, "I feel that to be true."
 
-"Then my work here is complete.
+"Then my work here is done.
 
 ###
 
+With Ms. Reedy gone, Tara wasn't sure what she would do with her days, or what remained of her days. There was no news about Avalon and her recovery. The doctor had not visited again, leading Tara to assume that Avalon would get better sooner rather than later. Tara wanted to search her out. Avalon's room remained empty. Tara knew this after checking it several times throughout the day. She assumed that Avalon was still in the tower. Going there wasn't a possibility since the tower was off limites to her.
+
+Tara knew that the tower was central to her father's work, but she didnt' fully understand how. After all, he spent most of his time in the study in the cottage, doing whatever he did there. But always upon Avalon's returned he would disppaer for the tower, sometimes for long stretches of time. He would be back in his office, then disappaer again. Once Avalon left again on another journey, he would settle back into his routine in the house.
+
+She also knew that others in the household held the tower to be a place to be feared, at least avoided. Many avoided talking about it altogether. As she paced around the house, she thought more about her father's passing comment that he had kept too much from her.
+
+As she turned over this comment in her mind, she wondered what he meant by that. She could assume it had something to do with Avalon, with his position. But beyond that she had so few bits of knowledge to cling on to to even start to speculate. She knew she lived a sheltered life and didn't understand much of the outside world. Avalon made that clear, even Ms. Reedy made that clear. But that restless desire to burst out into the world that she felt so often, as recently as the other day, suddenly changed into something more unsettling. Tara began to look at her immediate surroundings and feel that maybe things weren't as they seemed. 
+
+To rid herself of this feeling, she decided to walk through the woods surrounding their cottage. There were numerous trails beat back by hunters and the hunted alike through the woods. One path in particular, her favorite, wound its way down to a creek that cut through the woods. She determiend that this would be her path. 
+
+Unfortunatley, once she was in the woods, picking up the trail was harder than she had remembered. She wandered around for some time before she she could make out the path. It helped that she remembered that hunters had notched several of the trees to mark the path when they were covered with snow in the winter.
+
+After winding along the meandering trail, she arrived at the place where the creek's rocky bed cut tthe forest in two. The water was low and the creek was little more than a trickle. She sat in the grass regardless and watched the water flowing over and around the rocks, finding the small paths to rush through on its course.
+
+When she was a little girl, she had spent hours in the forest, by this creek, playing out elaborate stories with a cast of characters she conjured in her mind. She could only faintly recall those characters now, but she did remember the elaborate conversations she would have have out loud with them. How strange it must have seemed to overhear a little girl's half of a conversation, chattering on and one with no replies, only breaks of silence where other words should have been.
+
+That had been before Ms. Reedy had come into the picture, befor her father started to become aware that he would need to prepare his daughter for something. She had a nurse for many years, the same nurse that had tended to her since she was an infant, when her mother, a person who she had no memory of, had died suddenly during a plague year. The nurse was growing old and wanted to live out her days with her daughters in her home village.
+
+Her father released her from service, which percipitated something of a crisis in the household. This was the time when she had the most freedom to romp about and be a bit more wild than Ms. Reedy woudl ever had allowed. In fact, Tara could remember distinctly Ms. Reedy uttering words, "Absolutely feral," at the end of her first week with her new charge.
+
+Ms. Reedy had not said this to Tara direclty, of course. But Tara could overhear Ms. Reedy talking loudly to her father. She knew from her experience with her previous two governesses that her father had little patience for managing these affairs. That conversation between Ms. Reedy and her father had ended with a curt, "Yes, sir" and a closing door. After that Ms. Reedy approached Tara with a iron-like resolve to mould her into something suitable beyond "life in the wilderness" as she liked to put it.
+
+Tara didn't know if she was ready for life outside of this place or not. For so long, leaving home was something far off, something she would do as the first step in a grand adventure. And now the crisp crinkle of the leaves, the gurgle of the stream filled Tara with a longing for things to stay the same, for nothing to change. But it was going to change and she felt powerless to stop it.
+
+###
+
+Footsteps in the woods interrupted her reverie by the creek. She stood to leave before hearing her name whispered in the woods, a soft faint "Tara...Tara..." trickling out through the trees. She stopped and watched carefully as Avalon appeared, stepping gingerly over branches and foliage, holding her side which had been heavily bandaged.
+
+She wore a robe, but not the robe of swirling eyes that Tara had seen her in before. Her robe was just a simple one that grazed over the ground as she walked. Avalon stopped in front of her and gave a weak smile, "I remembered that you liked this place."
+
+Tara moved to wrap her arms around Avalon, but she stopped her with a wincing retreat. "It hurts too much, not right now." Tara stepped back, slightly embarassed. Avalon added, "Help me down, I should like to sit with you for a while. It's so peaceful here."
+
+Sitting beside Avalon, Tara did not feel the peace herself. She was used to feeling a sense of calm around Avalon, excitement too, but a feeling that things were right and as they should be. This feeling, though, felt far away, replaced with a fidgeting discontent. Tara spoke up, "I don't feel peaceful."
+
+Avalon gave her a sad smile and patted her bandged wounds, "Is it because of this?"
+
+Tara considered for a moment, "I suppose so. Everything is changing. Nothing seems the same."
+
+"The Tara that I knew would be excited by the idea. I always feared I would run out of stories to tell you to, would be unable to satiate your appetite for adventure."
+
+"Perhaps. But nothing about this seems exciting. I don't understand why papa is resigned, leaving our home. And our trip. What's to become of me in the capital?"
+
+"These are good questions. I wish I had answere to them."
+
+Tara was silent and then looked at Avalon, "What exactly happened to you? Please help me understand."
+
+"Tara, I do not claim to understand, and only have a vague recollection of what happened. Your father should know more soon. But it is an arduous process." She sighed again, then continued, "I have walked through many corners of this world, as you know. But perhaps even more than you realize. I am bound by a duty to walk to see, to witness events as they unfold in the kingdom."
+
+Tara thought about the people in the village and their strange manner as she approached, "Is that why people reacted so strangely to you in the village?"
+
+Avalon seemed confused by this question, perhaps not fully remembering everything that transpired the other day. "Perhaps so. It is one of the effects that my presence has on people. I am always appart when I am wearing the cloak and walking. I must be."
+
+"In order to see?"
+
+"In order to see clearly, to be vigilant." Tara rememebred the villagers using that word. It was one she was unfamiliar with, certainly in relation to Avalon, who was just Avalon to her.
+
+For Tara, Avalon was this soft spoken gentle person, who told wild stories about the world. As she considered this, Tara realized that so many of Avalon's stories were about others and not herself. They were stories not about her own experiences, but things she had seen. Listening to those stories, Tara had been able to insert herself into any role she chose, much as she did when she read a story or fairy tale. But Avalon was not a part of them at all.
+
+Avalon shook her head and looked far off, "It's all so unclear now, but I remember finding someone wounded, a boy, who was hiding in a hedgerow. He was terrified, in no small part because of my presence, I'm sure. I knew I shouldn't try to help him, but something moved me to do so. I couldn't stand to see his fear and hurt so up close, so intimately. But then we were surrounded by soldiers. Not just any soldiers, or so I recall, but members of the King's Guard. Elite soldiers. I just remembered being roughly used and then feeling a stabbing pain."
+
+"What happened to the boy?" Tara asked.
+
+"I do not know. I do not know who he was, or why they were after him, but they did not want me to assist him. And this is the result."
+
+Tara took Avalon to mean her wound, but she also extended it to mean what was happeening now, to her, to her father. She could only respond with, "It doesn't seem fair."
+
+"What doesn't?" Avalon asked.
+
+"Any of this. It doesn't seem right or fair..." Tara trailed off.
+
+"That what happeend in some far corner of the kingdom has set off ripples of effects that you are now feeling first hand?"
+
+"I...I guess that is it."
+
+"Tara, one of the blessings of your life up to now, is that you have been able to be blissfully unaware of how moments in one place affect moments in another place. We all live under the influence of forces we cannot see and sometimes cannot know. I have struggled mightly with this role, this mantle that I was tok to take up when I was not much older than you. I did not fully understand why, perhaps I don't even fully understand now. Yet I did what I was told to do, and here we are."
