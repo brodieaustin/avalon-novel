@@ -477,3 +477,181 @@ Tara took Avalon to mean her wound, but she also extended it to mean what was ha
 "I...I guess that is it."
 
 "Tara, one of the blessings of your life up to now, is that you have been able to be blissfully unaware of how moments in one place affect moments in another place. We all live under the influence of forces we cannot see and sometimes cannot know. I have struggled mightly with this role, this mantle that I was tok to take up when I was not much older than you. I did not fully understand why, perhaps I don't even fully understand now. Yet I did what I was told to do, and here we are."
+
+Tara pulled her knees in closer to the body and wrapped her arms around them. "I'm so afraid. I wish papa wasn't being so rash. Why does anyone need to know? Why couldn't he just keep this secret and not tell anyone, just let live go on the way it's supposed to?"
+
+"I can only imagine that your father feels a responsibilty to take these actions. You must realize that he is trying to do the right thing, the best thing, in this situation. You must trust his judgment and hope for the best."
+
+***
+
+Later that evening, just as she was preparing for bed, Tara's father entered her room. He rarely did this, usually having some emissary to attend to her needs on his behalf. It was strange having him in her room and Tara wasn't quite sure what to do with herself. She stood awkwardly in the middle of the room waiting for him to speak. Her father stood in the room without saying anything. He looked haggard and troubled. He held a large portfolio that was bound up in cord under his arm. 
+
+"What is that papa?" she asked him, wanting to break the silence in any way she could.
+
+"This? My work. I finished my work and this the the full account of what Avalon saw and what happened to her."
+
+"Do you mean what the cloak saw?"
+
+Her shifted shifted uncomfortably, "Yes, I suppose it is. How did you know?"
+
+"Avalon hinted at this. She didn't tell me much, but I understand a little more than I did before."
+
+"We don't have time to go into it all now, suffice to say, that I spent many hours completing this record. It is the record that I will deliver to the king."
+
+"Have you changed your mind about decision, papa?"
+
+"No, if anything, this taks has strengthed my resolve. Come what may, I feel strongly that I can no longer perform my tasks in light of what happened."
+
+Tara lowered her head, "I see."
+
+Her father weakly countereed her disappointment with, "There is always a chance that the king will not accept my resignation. I'm one of only a few recorders left. There are not many of us. It has taken me years to develop my skills to the level they are now. I'm not easily replaceable."
+
+"Then why do this, papa? I keep asking the question in my mind over and over again, and still do not have a good answer to it."
+
+"Tara, to do what I do and to send Avalon out into the world to do what she does, I must know that the threat of violence or disruption doesn't hang over every moment. I strive to capture the truth of what Avalong sees in her journeys. I try to capture an accurate record. In doing so, I am protecting the past, present, and the future, providing tools so that other might understand. Now, I feel that this is under threat. Perhaps the mere suggestion of my resignation will force the king to reconsider his actions. It is worth taking this chance if this is the outcome."
+
+He said good night and left her room. Tara tossed in bed trying to sleep. Had she known that it would be her last in this room, this bed, this home, the only one she had known, perhaps she would have slept more soundly to reslish the experience. Or perhaps she would have been spent the night completely wide-eyed, awake, trying to take in any and every sensation she could to remember later when she was very, very far away from home.
+
+# Chapter 4 #
+
+They set out later than her father wanted. He paced and worried over the slow progress that preparations were taking. The house staff had dwindled to just two people--Frannie, the maid, and Gregory the driver. The few others who had remained left early that morning, finishing their essential chores, and leaving notes in the kitchen announcing their intention to find work elsewhere.
+
+Frannie helped her pack the rest of her things. Tara lamented that she did not have the dress that had been ordered from the dressmaker. She sulked over it the fact while readied herself for the journey. Ultimately, there was nothign to be done about it, so she let the sulking mood slip away and made her final perparations--packing a quarto of paper that she had sewn together herself. a drawing pad and charcoals, and several books.
+
+When the time came to get her trunk downstairs, there was no one to help. Frannie had been called away by her father for some task or another. So, Tara did her best to drag her trunk down from her room. It bounced down the staircase and nearly exploded in the hallway. But she righted it and got it outside. Gregory stepped in and hoisted the trunk on his shoulder and attach it to the back of the carriage.
+
+Finally, everything was packed which meant that it was time to be underway. Avalon appeared at the front of the house, standing next to Frannie, to see them off. Gregory helped Tara's father and herself into the carriage, before aligthing it himself to get them underway.
+
+The reins popped and he muttered a quick, "Hiyah". The carraige lurched forward. Tara looked out the window and waved at Avalon, watching as the house and the two people left in it was clipped out of view by the bend in the road into the forest.
+
+As they traveled along the rough carriage roads, Tara tried to take in as much as she could. She wanted to remember every detail of this journey. Despite the fact that the trip was now tinged with the sadness of her father's resignation, she still clung to the fact that she had never been to the capital before now. She was still as excited as the version of herself from several days ago had been about the prospect of the trip.
+
+The road to the capital took them through the village, which had been the furthest place from her home that Tara had ever been. Once they cleared the buildings and the fields surrounding the village, she was entering country that she had never seen before.
+
+The trip should have been a long day's journey, as her father never tired of reminding her. Afternoon rain storms conspired with their late start to slow down their progress considerably. A farmers cart had overturned on the road, which required Gregory to stop the carriage and assist them calming the horses and righting the wagon. The road was just wide enough for them to skirt around farmer adn continue on their way.
+
+In the gray, dismal weather, Tara grew sleepy and didn't notice that it was getting dark out. She could half hear her father say, "I think we had better stop for the nigth soon." He gave instructions to Gregory to look out for a roadside establishment where they could stay for the night.
+
+When her father nudged her awake, the rain was just a trickle rolling off the trees and buildings, but it was very dark out. She stepped out onto a wooden plank that extended through the muddy grass in front of the inn where they were taking lodging. 
+
+Inside the inn, a fire blazed and a few laterns burned, giving out whatever light and heat they could. She kept close by her father, surprised by the glowering guests huddled at the tables around the inn's main area. She followed her father to an empty table. A boy about her age brought them water and bread, soon followed by a warm stew. 
+
+Tara had not grown up with fancy foods, but she was used to more refined fare than what was on offer here. The bread was seedy and tart. The stew meat was tough and gamey tasting. She picked at the food at first, then finally let her hunger overcome any delicate feelings she might have been feeling.
+
+After their meal, the same boy led them upstairs to a small, cold room with a rough hewn bed. Ropes lashed around the frames kept a lumpy mattress in place. The boy lit the stove in the corner of the room and stoked the fire to bring it to life. Once he returned with hot water for wash bowl, Tara and her father prepared for bed.
+
+###
+
+As requested, they were awoken early the next morning and found hot tea and toasted bread and butter waiting for them downstairs. Gregory joined them at the table. They all ate silently before Gregory dismissed himself to prepare the horses. Other travelers were coming and going through the inn, taking little notice of her and her father. 
+
+It struck her that no one knew who they were here. Even though her father was not a powerful landlord or magistrate, she was used to nodding heads and small acts of deference in the people around her. Here they were yet more cold, tired travelers crossing the kingdom's lands for one purpose or another.
+
+Their purpose that day was to arrive in the capital with as much haste as possible. The closer they got to the capital, the more worry seeemed to overtake her father. He shifted restlessly in the carriage, muttering to himself, as if rehearsing lines for a play. Tara tried to read but the bouncing carriage made her feel sick. So she leaned into the side and closed her eyes, hoping to fall asleep.
+
+She awoke in a foggy daze to a din of people, animals, and wagons around them. She looked out the carriage windows and was ovwhelemed by the sheer number of things happened around them. A farmer was cracking a whip to lead a herd of cattle down the road. A group of soldiers were walking casually, singing loud boisterous songs. Everywhere she looked there were riders and carriages and people and they were all trained in one direction--towards the capital.
+
+"Look, papa, there it is!" she called out, leaning dangerously out of the small window.
+
+"Do be careful, Tara," her pleaded. He turned and looked out as well.
+
+Directly in front of them, large stone pilings rose out of water that ran before the city, holding up a bridge that was the choke point for all of this traffic. On the other side of the river buildings scurried up the hillside in maze-like patterns, crushing up against the forbidding stone walls that surrounded the capital's inner keep. Within those stone walls, spires seemed to spring out at random until the one large structure dominated them all.
+
+"The Grand Hall," her father said pointing to that structure. "The king's residence, the court. The heart of our kingdom," he explained.
+
+"Will we go there?" Tara asked.
+
+"Once we are settled, I will send a messenger to announce my arrival and my wish to see the king. Hopefully, I will be granted an audience and deliver my message. It cannot come soon enough."
+
+Tara looked lovingly at her father and replied, "Do not worry, papa. I'm sure everything will be fine. You've always said that the king is good and noble. I'm sure he will be gracious when you pay your respects."
+
+"Yes, I hope you are right."
+
+***
+
+By the time they entered the city, Tara already felt like she had had enough of it. Just crossing the bridge had taken an another hour. No matter where they turned, there were people and things clogging the roads. Tara could hear Gregory continually trying to settle the horses who were skittish in the midst of so much distraction.
+
+They finally made their way to the section of the city where travelers would find "services to their liking", or so one passerby they asked for directions had told them. Her father pointed out a guesthouse that seemed respectable enough and went inside to reserve their room. 
+
+With their trunks unloaded and delivered to their room, her father gave the young man helping them a small tribute in form a few coins then impressed upon him the need to find a messengar to deliver a notes to the palace gates.
+
+Cleary confused by the request, the young man regarded him with a curious expression, "The palace gates are open most days, sir. The general public's allowed to pass to and fro, assuming they pass the guard stand, that is."
+
+"That is very well, but I am here on a matter of some urgency and sensitivity. It is best that my arrival be known to the king by way of a courier or messenger."
+
+Her father held out a few more coins and the young man took them readily and said, "I'll do my best, sir."
+
+Several minutes later, the young man returned with a boy and announcing that he had returned with a messenger. Her father eyed the boy, ruddy checks, somewhat threadbare clothes, his britches spotted with dirt from another day's rain. "I was hoping for someone...a bit more official."
+
+"I'm sorry sir, but we don't get many people of the official sort around here. When we do, we generally don't look on it too favorably, if you take my meaning. IT usually spells no good for ourselves.
+
+"Yes, I take your meaning, young man. Can he be trusted?" The man and the boy stayed silent momentarily, "Well, boy what say you?"
+
+"Me, sir? I run all sorts of errands around these parts. I bring around bread and beer to the workmen. I fetch horses, all sorts of things."
+
+"I have here an important letter that I need delivered with haste. Can you do it?"
+
+"I think I can and jump right into it too."
+
+"Very well then." Her father produced a letter from the folio case he carried with him and had sat on the bed. "This is the letter. And here is a downpayment for you troubles."
+
+The boy wasn't used to having metal dropped in his hands like the young man was. His eyes lit and he dashed out of the room. They could hear him clomping down the stairs and out into the street.
+
+The young man bowed and took his leave, leaving Tara and her father alone in the small room. Her father turned to her and said, "And now we wait."
+
+***
+
+Several hours passed before a knock finally came at the door. Tara and her father had both dozed off, partly due to the fatigue from traveling, but also from the intense late afternoon sun that warmed up their room.
+
+The knock starteled Tara awake. She looked over to find her father more asleep than she. She sat up and rocked him genty, "Papa, someone is at the door."
+
+"Huh? The door? Yes, right away." The knocking continued. It was a quiet but steadfast knocking. Her father sat up as well and rubbed his hands quickly over his face to invigorate himself. He spoke up more loudly, "Coming, coming..."
+
+As he walked to the door he rearranged his shirt, smoothed his breeches and coat out. Tara realized that he was trying to make himself presentable, though she wondered why. Would the kind be appearing here in their room? She stood too, just in case that happened to be how things unfolded.
+
+When her father opened the door and saw the same young man as before standing here, they both seemed to deflate a little. Certainly her father's sigh spoke to a sense of disappointment. "Do you have any word from the palace?" her father asked. 
+
+"No sir, not exatly." Her father stepped back and sighed. He was so eager to execute this task that every little delay seemed to be waring on him. Her father started to close the door but the man spoke up, "There's more. There is someone here to see you." 
+
+"From the palace?"
+
+"I can't rightly say. Older gentleman. Somewhat plainly dressed."
+
+"You may send him up, then."
+
+"That's just it, sir. He insisted that you come down."
+
+"I see." Her father seemed to be thinking through what this might mean. "Is there a private room we might use to confer with this visitor for a short time?"
+
+"Private room? Not exactly, not for guests. I suppose you could make use of the back parlor that the family that runs the inn maintains for itself. I would need to ask permission of course."
+
+"Please do, then we will be right down."
+
+"Yes, sir." The young man disappeared to inquire about the room then reappeared, "I'll show you the way."
+
+He led them down a back stair case that as hidden behind a paneled door, "Pardon the servant's stairs, but it's the most convenient." Her father didn't say anything, so Tara interjected a quiet, "Not at all" to be polite.
+
+They entered a small room with a fireplace, dark wood paneling, and dark, overstuffed furniture. Standing with his back to the room, looking out the window, was a tall man dressed in a long dark coat and dark trousers. He turned to reveal an old gaunt face decorated with a thick gray beard. Yet in spite of the profusion of gray hair and wrinkled skin, the man exuded a sense of power from this broad shoulders and glinting eyes. 
+
+Those same eyes sized them both up, her in particular. She could feel his gaze linger on her, as if cataloging all of her traits and qualities for some future purpose. She felt evaluated, summed up in this simple action.
+
+"Please sit," the man said to them. "You may leave us," he instructed the young man. All parties obeyed him without hesitation. He sat in one of the arm chairs opposite them, but perched on the very edge of the cushion. "So, I am to understand that you wish an audience with the king?"
+
+"Yes, that is correct. I have urgent business with him."
+
+"Mmmm, of course. Do you have your credentials?"
+
+Now it was her father's turn to straighten himself up, "Credentials? I said who I saw in my note and stated my intention clearly enough. That has always sufficed in the past."
+
+"Perhaps, but I am responsibble for the ways of today, not of the past. Besides if you are who you are, it has been, what? Some fifteen years since you have paid his majesty a visit. And I am to assume from some street urchin's note announcing the presence of one of the king's recorders in the capital, that said recorder has decided to make his presence known."
+
+Tara couldn't help but interject into the conversation on behalf of her father, "My father has served the king loyally and well for as long as I can remember?"
+
+The old man looked at her with a flat deadpan expression, "And how far back does your memory go, young lady?"
+
+Her father stood, "This is an outrage. I'm being treated like a common subject. My position used to be held with revernce and esteem, particuarly by functionaries of the court."
+
+The man smiled, "No doubt. But this functionary stand between you and your request to access the court. And this functionary has asked to review your credentials, per the king's orders."
+
+The moment of defiance was over as the color drained from her father's face. He sat back down and produced medallion and a small quarto sheet of paper that had been neatly folded and still bore a wax seal on it. The man stood to collect them and moved to the window to inspect them in the full light of the window.
+
+He turned back to them and said, "I will be keeping these for further review. I suggest that you not venture far from this inn, as you will be under surveillance until your credentials can be properly verified." With that he collected a tall dark hat to round out his costume, tipped it to them both, bid them good day, and left them along in the room to reflect further on what had just happened.
