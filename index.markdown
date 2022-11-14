@@ -540,8 +540,6 @@ Tara had not grown up with fancy foods, but she was used to more refined fare th
 
 After their meal, the same boy led them upstairs to a small, cold room with a rough hewn bed. Ropes lashed around the frames kept a lumpy mattress in place. The boy lit the stove in the corner of the room and stoked the fire to bring it to life. Once he returned with hot water for wash bowl, Tara and her father prepared for bed.
 
-###
-
 As requested, they were awoken early the next morning and found hot tea and toasted bread and butter waiting for them downstairs. Gregory joined them at the table. They all ate silently before Gregory dismissed himself to prepare the horses. Other travelers were coming and going through the inn, taking little notice of her and her father. 
 
 It struck her that no one knew who they were here. Even though her father was not a powerful landlord or magistrate, she was used to nodding heads and small acts of deference in the people around her. Here they were yet more cold, tired travelers crossing the kingdom's lands for one purpose or another.
@@ -650,8 +648,72 @@ The old man looked at her with a flat deadpan expression, "And how far back does
 
 Her father stood, "This is an outrage. I'm being treated like a common subject. My position used to be held with revernce and esteem, particuarly by functionaries of the court."
 
-The man smiled, "No doubt. But this functionary stand between you and your request to access the court. And this functionary has asked to review your credentials, per the king's orders."
+The man smiled, "No doubt. But this functionary stand between you and your request to access the court. And this functionary has been asked to review your credentials, per the king's orders."
 
-The moment of defiance was over as the color drained from her father's face. He sat back down and produced medallion and a small quarto sheet of paper that had been neatly folded and still bore a wax seal on it. The man stood to collect them and moved to the window to inspect them in the full light of the window.
+The moment of defiance was over as the color drained from her father's face. He sat back down and produced a small quarto sheet of paper that had been neatly folded and still bore a wax seal on it. The man stood to collect them and moved to the window to inspect them in the full light of the window.
 
-He turned back to them and said, "I will be keeping these for further review. I suggest that you not venture far from this inn, as you will be under surveillance until your credentials can be properly verified." With that he collected a tall dark hat to round out his costume, tipped it to them both, bid them good day, and left them along in the room to reflect further on what had just happened.
+He turned back to them and said, "I will be keeping these for further review. I suggest that you not venture far from this inn, as you will be under surveillance until your credentials can be properly verified." With that he collected a tall dark hat to round out his costume, tipped it to them both, bid them good day, and left them alone in the room to reflect further on what had just happened.
+
+***
+
+Her father paced their room, fuming, in his quiet nervous way about the treatment he had just received. "This is outrageous," he cried out. "Unheard of. I have loyally served the king and the king's father before him. The king should know not to trifle with someone in my position. I know many things, many secrets. A person in my position should be held in esteemed, not degraded like this." 
+
+Tara had never seen her father fume like his, never seen him talk about his status and position in such a a away as to elevate himself above others. Yet here he was in this small room in an inn somehwere in the capital city asseting that he was important and needed to be heard and taken seriously.
+
+Her father paused, "Do you think the King knows why I am here?"
+
+Tara finally ventured a quiet reply, not wanting to inflame her father's nervous agitation any more than was necessary, "I cannot say."
+
+"That man, that foul functionary spoke of spies." Her father looked around, though at what Tara could not say exactly, "Perhaps there are spies everywhere. Do you think there were spies in our household?"
+
+"Papa, who would have been a spy?"
+
+"Maybe..." her father rubbed his chin vigoursly, making a rasping sound as he fingers grazed the day old stubble on his cheeks, "Maybe Ms. Reedy. She disappeared suddenly once she learned the news."
+
+"Papa, please listen to yourself. Ms. Reedy? She was with us for years."
+
+"Waiting, as spies do. I must get to the bottom of this. This is simply unfathomable, unbelievable."
+
+Tara finally stood up and rested her hands on her father's shoulders. They were normally curved in slightly, presumably from the time he spent hunched over his work, but there were even more bowed in on themselves now. When she touched him, the coil of energy that was propelling him around the room unwound. He nearly went limp. 
+
+She steered him towards the bed and suggested he rest. "Would you like a cup of tea, father?" He nodded yes and closed his eyes, sighing as he did so.
+
+Tara rang a small bell and a young woman appeared this time at their door. She was about the same age as the young man. They resembled each other so much that Tara assumed they were brother and sister.
+
+"Yes?" the young woman asked in a tone that was neighter friendly or unfriendly, helpful or unhelpful. She didn't seem particlarly harried, but didn't seem to relish her job either.
+
+"My father needs rest, and a cup of tea to calm him. Would you send one up?"
+
+"Yes, is that all?" 
+
+The woman turned to leave, "And one more thing, is there a market nearby? I would like to purchase from fresh fruit for him as well."
+
+There is, in the square a few blocks from here. There won't be much left at this time of day, but that's for you the decide if it's worth your time and all."
+
+"Thank you," Tara replied and timidly reached out to give the young woman a coin in payment. 
+
+The young woman turned it over in her hand and frowned, slipped it into her apron and disappeared downstairs. 
+
+When her father was situated with tea and a small cake, Tara put on her traveleing cloak with it deep dark hood and set out to find the market.
+
+She wandered into the street, not aware of the carts and people swirling around her and heading towards her. Several passerbys shouted out curses to her to move. Tara reeled at first, then got her bearings, and proceeded to find the market. She immeditaly saw that someone was following her from the other side of the street, but decided to ignore this for now. After all, the man had warned them that her and her father would be followed.
+
+She finally found her way to the market, rows of shabby tents that huddled in the middle of a clearing. Around the edge of the clearing, buildings teetered on each other, some reaching up several stories. Being in the market gave Tara the sensation of having been swallowed by a gaping mouth. The buildings seeemd to loom and threatened to close her up.
+
+A mixture of organic smells pervaded the market, from the produce that was ripeneing in the afternoon sun, animals that were waiting to be purchased. She stepped over tricles of blood from meat that had been freshly slaughtered. And the people. She bumped into and bounced off of the people who were jostling in the market to make their purchases.
+
+Tara walked the aisles of the market several times before finding a merchant with fruit that seemed to be of the quality she was used to. An old woman sat on a crate and eyed her suspiciously while she picked through the apples. Finally the woman snapped, "One's as good another. Make a decision."
+
+Instictively Tara replied, "Yes, ma'am. I didn't mean any offense."
+
+The woman sneered at her, not caring to hear Tara's apologies and polite words. "Do you have coin for the purchase?"
+
+Tara fetched the money from small pouch tied around her wrist that she kept hidden in the sleeve of her dress. She handed over the money then indicated that she wanted a bunch of grapes. She paid for those as well and started to make her way out of the square.
+
+A crowd had gathered at the far end of the market. Tara's wanderings led her to the crowd and she found herself attached to it. Puppeteers had set up and improvised puppet theater and were entertaining the children and adults alike.
+
+Tara decided to stay and watch the show. The cast included a puppet dressed as a king, a knightly soldier, and a peasant farmer. In most of the stories, the king and knight were plotting to one up the peasant--steal his cow, take his land, or trick him into fulfilling some dangerous task. The peasant farmer had the knack of getting out of any scrape and making the king and knight look foolish in the process. 
+
+Much like the audience, Tara found herself smiling and laughing at the foolish exploits of the characters. She glanced over at one point and noticed the man who had been following her, leaning up against a building wall, looking stoic and unamused by the show.
+
+She decided it was best to move on and return to the inn. She was anxious to get the fruit back to her father, hoping it would refresh and revive him. As she turned to leave, she caught a peculiar sight out of the corner of her eye. A figure had its back to her, then turned in profile, at one of the market stalls. The figure held up a basket that received whatever purchase was being made. The figure then turned to leave. Tara insitinctively stepped foward, saying out loud, "Ms. Reedy?"
