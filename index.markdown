@@ -717,3 +717,80 @@ Tara decided to stay and watch the show. The cast included a puppet dressed as a
 Much like the audience, Tara found herself smiling and laughing at the foolish exploits of the characters. She glanced over at one point and noticed the man who had been following her, leaning up against a building wall, looking stoic and unamused by the show.
 
 She decided it was best to move on and return to the inn. She was anxious to get the fruit back to her father, hoping it would refresh and revive him. As she turned to leave, she caught a peculiar sight out of the corner of her eye. A figure had its back to her, then turned in profile, at one of the market stalls. The figure held up a basket that received whatever purchase was being made. The figure then turned to leave. Tara insitinctively stepped foward, saying out loud, "Ms. Reedy?"
+
+Tara's voiced seemed to be swallowed up by the din of the crowd in the market. The figure did not stop or pause. Tara tried to push forward through the crowd to get to Ms. Reedy, but could not navigate through the dense layers of elbows and baksets before the person turned and walked away.
+
+From a distance, Tara could just make out the shape of the woman's hat as it bobbed down the aisle between the stalls. The woman, Ms. Reedy, wore a hat that Tara felt she recognized. By recognizing it, she felt sure that this was Ms. Reedy. But what was Ms. Reedy doing here in the capital? Tara clearly remembered her saying that she was heading north to be with family. 
+
+The capital wasn't that far out of the way making it a possible waypoint between Tara's house and her final destination. Besides, many roads led throught the capital, and there was always some reason to visit. Perhaps Ms. Reedy had had such a reason. 
+
+As the figure disappeared from view, Tara realized that the only way to resolve any of these questions was to catch up with Ms. Reedy and ask her directly. She started to move through the crowd with greater resolve, winding her way around people, instead of stopped and starting to determine each person's path like she had been doing. The more she stayed focused on Ms. Reedy, the less she even took notice of the crowd at all. The people became mere blobs of color adn movement to navigate. 
+
+By the time she broke free of the market's congestion, she just managed to catch sight of Ms Reedy walking across the square then turning down one of the narrow side streets that led into the square. Tara tried calling out to her again, but there was no chance of catching the quickly retreating figure's attention that way.
+
+Tara continued her pursuit down these narrow streets--one turn after another. Without realizing it, Tara was moving further and further into a maze of old steets populated with beggars sitting in doorways, mangy dogs lopping along the loose cobblestone, and yet more people coming and going.
+
+She realized now that she could not see Ms. Reedy, had completley lost track of her. Futhermore, she looked around and noticed that the buildings were more squalid than they had before. Windows were broken, doorframes sagging. The people seemed more threadbare, a series of coughs echoed from building to building. Ahead of her a beggar clacked his way down the street, supporting himself with a rustic crutch.
+
+She looked around one more time, completely surprised that Ms. Reedy had not once turned to see a familar, though unexpected face following her. Now she realized that she had a different problem. She wasn't sure how to get home, having lost track of the twists and turns she made following Ms. Reedy. 
+
+She could hear sound from a busier street just up ahead and continued down the small street that led towards the sounds. Before she could reach the street though, she came across two soldiers who were position just outside a dram shop. They were slouching against the wall, sipping from identical tin cups.
+
+One solder was slightly taller than the other, but both and full mustaches that dropped down from their noses and over their mouths. The taller one stood up and said, "Stand attention, Beltran, we have a little lady in our midst."
+
+The shorter one stood at mock attention and saluted, grinning a grin that seemed more sinister than jovial. 
+
+"At ease, Beltran," the taller one jokingly said. They moved to surround Tara. "Where are you off to in the part of town, mi'lady?"
+
+"She might be lost, you know?"
+
+"By jove, I think you might be right, then it would only be fitting for us to return her to her rightful owner."
+
+The shorter one got a hungry look in his eyes, "Maybe there a reward for her?"
+
+"Do you have a reward for your return, mi'lady?"
+
+"No," Tara replied. "I'm looking for my guardian, Ms. Reedy, do you know her?"
+
+Both of the soldiers laughed, but only the one named Beltra replied, "Do we know her? Of course we know her."
+
+Tara's eyes grew wide and hopeful, "You do! Can you take me to her?"
+
+Before the soldiers could reply, a firm hand gripped Tara's arm. The solders looked annoyed, then snapped to attention. Tara looked up and recognized the King's agent who had been following her.
+
+"That's enough of that. You two get back to your patrol before I report you for disorderly conduct."
+
+"Yes, sir," they both replied and bolted back into the street.
+
+The agent look down at her and said in a stern voice, "You have strayed far from the inn and this is not a safe place for a young girl like yourself. Let us return back there before you find yourself in more trouble."
+
+# Chapter 5 #
+
+<!---
+
+Father receives word that he has been granted audience with king
+Meet the prince first
+King is in the midst of planning a ball, distracted
+Invites Tara and her father
+At the end of the ball, guards are waiting to arrest her father.
+
+-->
+
+Tara's father woke up the next morning seeming much more refreshed, even optimistic. He asked for tea and porridge for breakfast and nibbled at the fruit that Tara had brought back home. She had been vague about her adventure the day before when she returned home. She even pretended to be surprised when her father pointed out someone that might be one of the king's agents watching them at dinner.
+
+Try as she might, she could not help but dwell on what had happened yesterday. She replayed the events in her mind over and over again. Not only that, but a feeling of being somewhere else came over her. Her father eventually noticed and asked her several times through the morning if everything was okay. "You seemed distracted, Tara."
+
+"I'm fine father," she would reply, weighing in her mind if she tell him what she saw. She wasn't sure why she was hestitating to tell him. She realized that she didn't need to tell him every detail about what happened. What value did holding this secret have for her?
+
+Just before lunch time, a messenger from the court was shown to their room and delivered a sealed note to her father. With the door closed, he turned to sit at the simple table in the corner of the room. He hand shook as he separated the seal from the note then opened it. 
+
+Tara watched as her father's eyes frantically scanned the note back and forth, up and down. He folded it back up and set it on the table. He stood up and straightened himself up. Tara wasn not sure what he was going to say. He had become stern and serious in reaction to the note. 
+
+"Father? What did the note say? Is it bad news?"
+
+Her father looked at her, far away in his own way now and replied, "I am to have my audience later this afternoon. You are invited as well to the see the court."
+
+Tara clapped, "That is wonderful news!" In her excitement, she forgot all about the purpose of the meeting. 
+
+Her father replied with a grim smile.
+
