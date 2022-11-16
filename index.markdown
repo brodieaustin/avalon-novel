@@ -12,7 +12,7 @@ Tara retreated back into her bedroom, slamming the door behind her. As if defyin
 
 Tara wanted to fling herself onto the bed, to roll up in the blankets and wail and cry for Avalon until she arrived. She wanted to do something with the bundle of energy that rose up and knocked about her inside. In the past she would have let that energy knock about the room, maybe even knock into the maid. 
 
-This very thing happened not long ago, and the maid, younger than this one, but seemingly always frail with a retiring manner, was knocked on her back and suffered a mere bump, Tara felt). The maid left their service, forcing Ms. Reedy to search yet again for a maid. Only this time, she had issued a warning to Tara. Ms. Reedy would bring this behavior to her father's attention. This surely would jeopardize her thirteenth year trip. The impatience she felt waiting for Avalon to return paled in comparison to the blistering agitation of waiting for hours and days and weeks to pass for this trip.
+This very thing happened not long ago, and the maid, younger than this one, but seemingly always frail with a retiring manner, was knocked on her back and suffered a mere bump, Tara felt). The maid left their service, forcing Ms. Reedy to search yet again for a maid. Only this time, she had issued a warning to Tara. Ms. Reedy would bring this behavior to her father's attention. This surely would jeopardize her fifteenth year trip. The impatience she felt waiting for Avalon to return paled in comparison to the blistering agitation of waiting for hours and days and weeks to pass for this trip.
 
 She simply had to control her self. So, she channeled Avalon who always seemed serene, peaceful, sometimes far away. Whereas Tara often felt herself bursting through life, Avalon seemed to float and glide. Perhaps this was one of the reasons that Tara liked Avalon being back in the household, even if these stays were inevitably too short. 
 
@@ -68,7 +68,7 @@ Tara's excitement began to dissipate, "After lunch, but what about AValon?"
 
 "What if I miss her?"
 
-"Miss her, Tara, you must stop this silly obsessino with Avalon. It has gone on long enough. You are soon to be thirteen. Soon it will be time to declutter your mind of girlish things."
+"Miss her, Tara, you must stop this silly obsessino with Avalon. It has gone on long enough. You are soon to be fifteen. Soon it will be time to declutter your mind of girlish things."
 
 Tara shrank back from her own thoughts, feeling embarassed and ashamed of being called childish. "Yes, ma'am," was her meek reply.
 
@@ -572,9 +572,9 @@ They finally made their way to the section of the city where travelers would fin
 
 With their trunks unloaded and delivered to their room, her father gave the young man helping them a small tribute in form a few coins then impressed upon him the need to find a messengar to deliver a notes to the palace gates.
 
-Cleary confused by the request, the young man regarded him with a curious expression, "The palace gates are open most days, sir. The general public's allowed to pass to and fro, assuming they pass the guard stand, that is."
+Cleary confused by the request, the young man regarded him with a curious expression, "The palace gates are closed most days, sir. The general public's not been allowed to pass just to and from for well over a year now."
 
-"That is very well, but I am here on a matter of some urgency and sensitivity. It is best that my arrival be known to the king by way of a courier or messenger."
+"That is very well, but I am here on a matter of some urgency and sensitivity. It is of the utmost importance that my arrival be known to the king."
 
 Her father held out a few more coins and the young man took them readily and said, "I'll do my best, sir."
 
@@ -790,7 +790,62 @@ Tara watched as her father's eyes frantically scanned the note back and forth, u
 
 Her father looked at her, far away in his own way now and replied, "I am to have my audience later this afternoon. You are invited as well to the see the court."
 
-Tara clapped, "That is wonderful news!" In her excitement, she forgot all about the purpose of the meeting. 
+Tara clapped, "That is wonderful news!" In her excitement, she forgot all about the purpose of the meeting. Her father replied with a grim smile, all to aware of why he was seeking an audience with the king.
 
-Her father replied with a grim smile.
+They left the inn later for the appointment. They hired a cab to help them navigate the twisting city streets. He pointed a few landmarks that he recognized from the cab, but observed several times how different the capital was. All that Tara could see around her were people coming and going, trash that piled up in the streets, animala and children running here and there. 
 
+This started to change as they approached the walls that separated the palace from the rest of the city. As they had been told, the gates were thrown open and a surprising amount of people flowed in and out of them. Most of the traffic was soldiers out on patrol, coming and going. Tara thought she caught of glimpse of the two soldiers that had harassesd her earlier, but she did not exert much effort in confirming this.
+
+They alighted the carraige just before the gates. There was a disorderly line of people stopped before the gates, appealing to the guards to be let in for one reason or another. Her father collected his invitation and the sheafs of paper he had brought from home to present to the king. Two guards stood at either side of the gate, trying to keep the crowd as far back from the gates as possible. Above them, several more guards paced back and forth. One guard carried a long halbard and used it from on high to poke and prod at the people who were not easily pacified. 
+
+Two more guards walked the line on either side, looking over the people standing there carefully. Perhaps they were reviewing each person for certain traits or qualities that might warrant stopping them, but Tara could not tell what those qualities might be. One of these guards stopped in front of a peddlar who has had a pole straddled across his bag, from which several rabbits swung gently as he walked. The guard examined the rabbits and did a cursory search of the peddlar then waved him to the front of the line the gate, shouting out, "Let 'em through."
+
+Tara's father managed to catch the attention of the other guard walking the line. He showed his invitation with the king's seal, trying to explain that they had an audience. The guard flipped the paper over several times, squinted at the seal. It was obvious to Tara that the guard could not read. So he stepped behind them and gruffly said, "Move up ahead."
+
+As they passed the line, a few of the people waiting took notice that they were being moved to the front of the line. A generalized groaning complaint issued from the crowd. The guard stationed at the gate stepped forward with their spears pointed out, shouting, "Stay in line, stay in line you lot."
+
+Their escort led them through the small door cut into the large seemingly impregnable gate. He told them to stop and stepped towards a heavy door set in the side of the stone wall. He rapped his knuckles on a wooden door several times, "Wait here," the guard grumbled, and slipped back through the door to continue his surveillance of the crowd.. 
+
+Finally, they heard the door creak open and a third guard walked out. He was wiping the messy remnant of an early dinner from this mouth and beard. His irritated expression suggested that he had not wanted to be disturbed. He waved Tara and her father to come follow him into the room after him.
+
+They room was bare, just stone floor and walls, wooden beams running here and there for support. A wall of weapons and shields were lined up on one side. There was a cot opposite that. In the middle of the room was a long table littered with dirty dishes. There was also a tall wooden stand near the one window cut high into the stone walls. A large book lay open on the stand.
+
+He reached out for the paper saying, "Let me see that paper you're carrying,"
+
+Tara's father nervously moved forward, holding the invitation out, "It was just delivered earlier today. It's authentic."
+
+"I'll be the judge of that, don't you doubt it." He walked over to the stand and the window. He held up the invitatino to the light and turned it over several times. He flipped back and forth in the book, looking for a specific page. With the page finally found, the lay the invitation next to it. 
+
+Tara watched as he glanced back and forth between the page of the book on the left side and the invitation on the right side. He did this several times before removing the invitation and flipping around to find another page. Now he ran a finger up and down the page as if scanning for a specific piece of information. 
+
+When the finger stopped scanning, he turned to Tara's father and said, "The invitation looks real enough, but I find no record of your visit in the log here."
+
+Her father looked wild and desperate all of a sudden, "That cannot be. There must be a mistake. I was visited by a courier just this morning."
+
+"Well the forgeries are getting better and better. It's a fine job whoever produced this."
+
+Her father stood up tall, as if offended by the suggestion that this invitation was fake, "I would never. Do you know who I am? I have served as the Chief Recorder for well over twenty years. I served the king's father before that."
+
+The guard scratched his beard, "That all might be so, or just a convincing cover story, but unless you're in the log, I'm not authorized to let you in."
+
+Tara's father collapsed in a nearby chair and let out a pietous moan. She stepped forward, "Surely there must be some way to correct this mistake." She tried to think quickly, "Yestersday, we were visited by someone from the court. An older gentleman, dark suit, top hat." The guard eyed her suspicously. This new information signified something to him, but he wasn't revealing what just yet.
+
+The guard opened the door and shouted up to one of the guards who was stationed above the gate, "Eh, you, I need you down here now."
+
+Another door, opposite the one they had entered, and the guard appeared from the dark hall into the murky light in the room. The suprioer officers turned to him, "I need these two thoroughly inspected, no fold of fabric unturned, then take them to the palace entrance. They need further review and we're not equipped for that sort of thing here." The guard merely answered, "Yes sir," and began searching Tara and her father.
+
+***
+
+Their papers and selves were searched, inspected, scrutinized several more times before Tara and her father found herself waiting in a antechamber to the throne room. Guards stood at the door, stone faced and not acknowledging them. Tara could hear voices coming through the door and wondered what business the king was attending to at the moment. 
+
+Whatever that business might be, it took some time to conduct. Whereas they started by standing in the antechamber, anticipating a quick entrance, after some time they were sitting on stone benches that protruded from the wall. Tara's father said quietly, "It was never like this before. This is outrageous treatment. I simply do not understand."
+
+Tara did her best to pacify her father, especially after one of the guards looked askance at them. She thought it best to not attract any attention, especailly after the effort it took to reach this point in the palace. "Father, I'm sure there is a good reason for the procedures. Surely they subject every visitor to them. We've come this far. We just need to wait patiently."
+
+"Yes,yes, you are right. So much time has passed. Perhaps I made a mistake being away from court for so long. I assumed that my status was secure given the improtance of my role. My dispatches were always received and replied to. I just wish I understood."
+
+Tara had never heard her father talk about their distance from court as a decision he had made. When she was younger she took it as a fact that they lived in a remote place, far away from others. Her growing awareness when she was older that they enjoyed an elevated status also coincided with a growing awareness that her father's work was improtant, consuming. The work did not leave him time to host parties, to mingle with the local landlords, even to go into town that often.The house staff attended to his needs and he seemed contented to have those needs fulfilled by the people employed to do just that. But not all of the facts were, in fact, facts, but choices her father made about the shape his life, and in consequence, her life would take. 
+
+She couldn't help but wonder, as they sat mere feet from the kingdom's seat of power, what had been denied to her due to their distance from that seat. What would life had been like if they had traveled regualrly to the capital, had been none to the greatest families in teh kingdom, not just the local gentry of their little corner of the world. 
+
+She didn't have long to dwell on these possibilities once the door opened and the man who had visited them at the inn stepped into the breach, instructing them even as he turned back to the hall, "The king will see you now."
