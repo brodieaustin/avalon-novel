@@ -2,6 +2,8 @@
 layout: base
 ---
 
+<!-- need to make it clear throughout the there is a newish king -->
+
 # Chapter 1 #
 
 "Avalon!" Tara called out from her threshold between her bedroom and the upstairs hall. "Avalon!" But the footsteps that grew louder up the stairs were not Avalon's at all. They lacked the purposeful, elegeant glide that Avalon's unmistakable footsteps had. These footsteps were purposeful, for sure, but each thud announced a walker stepping with forced purpose, almost willing each step to land, one after the other.
@@ -328,7 +330,7 @@ Tara immediately felt relieved, but her father didn't seem to be. She didn't und
 
 "Vigilants?" Tara offered.
 
-Her father looked puzzled by the word, "Yes, this is what they're called by many common people. Vigilants are protected by the king's order. It is a grave crime to lay hands on someone like Avalon, a vigilant. Doing so put the vigilant at risk, but so much more," her father paused here, worry creeping all over his face in the shadows. "Oh, I am having trouble even saying this directly. Avalon insists that she was attacked, but not just attacked by anyone, which would be a henious act."
+Her father looked puzzled by the word, "Yes, this is what they're called by many common people. Vigilants are protected by the monarch. It is a grave crime to lay hands on someone like Avalon, a vigilant. Doing so put the vigilant at risk, but so much more," her father paused here, worry creeping all over his face in the shadows. "Oh, I am having trouble even saying this directly. Avalon insists that she was attacked, but not just attacked by anyone, which would be a henious act."
 
 "Then who attacked her father?"
 
@@ -336,7 +338,7 @@ Her father looked puzzled by the word, "Yes, this is what they're called by many
 
 "But if she is under the king's protection..." Tara trailed off, still struggling to put the bits and pieces of information her father was dropping into something coherent.
 
-"Yes, exactly, then the King has rescinded his protection, and the whole project is threatened. And because of this I have come to a difficult decision. I have... I have decided to resign from my position in protest."
+"Yes, exactly, then the new King has rescinded his protection, and the whole project is threatened. And because of this I have come to a difficult decision. I have... I have decided to resign from my position in protest."
 
 "Leave your position over this? Papa, are you sure? This seems so drastic, so sudden. What will happen if you do this?"
 
@@ -356,7 +358,7 @@ Her father looked puzzled by the word, "Yes, this is what they're called by many
 
 "But the balls and parties?"
 
-"We will see. I cannot predict how my news will be received. I can only hope that the King understand my concern and decision come from a place of loyalty and pride and not treason."
+"We will see. I cannot predict how my news will be received. I can only hope that the new King will understand my concern and decision come from a place of loyalty and pride and not treason."
 
 "Treason, papa? That is a scary word."
 
@@ -560,7 +562,7 @@ Directly in front of them, large stone pilings rose out of water that ran before
 
 "Once we are settled, I will send a messenger to announce my arrival and my wish to see the king. Hopefully, I will be granted an audience and deliver my message. It cannot come soon enough."
 
-Tara looked lovingly at her father and replied, "Do not worry, papa. I'm sure everything will be fine. You've always said that the king is good and noble. I'm sure he will be gracious when you pay your respects."
+Tara looked lovingly at her father and replied, "Do not worry, papa. I'm sure everything will be fine. You've always said that the king's father was good and noble. Surely his son will be the same. I'm sure he will be gracious when you pay your respects."
 
 "Yes, I hope you are right."
 
@@ -642,7 +644,7 @@ Now it was her father's turn to straighten himself up, "Credentials? I said who 
 
 "Perhaps, but I am responsibble for the ways of today, not of the past. Besides if you are who you are, it has been, what? Some fifteen years since you have paid his majesty a visit. And I am to assume from some street urchin's note announcing the presence of one of the king's recorders in the capital, that said recorder has decided to make his presence known."
 
-Tara couldn't help but interject into the conversation on behalf of her father, "My father has served the king loyally and well for as long as I can remember?"
+Tara couldn't help but interject into the conversation on behalf of her father, "My father has served the kingdom loyally and well for as long as I can remember?"
 
 The old man looked at her with a flat deadpan expression, "And how far back does your memory go, young lady?"
 
@@ -656,7 +658,7 @@ He turned back to them and said, "I will be keeping these for further review. I 
 
 ***
 
-Her father paced their room, fuming, in his quiet nervous way about the treatment he had just received. "This is outrageous," he cried out. "Unheard of. I have loyally served the king and the king's father before him. The king should know not to trifle with someone in my position. I know many things, many secrets. A person in my position should be held in esteemed, not degraded like this." 
+Her father paced their room, fuming, in his quiet nervous way about the treatment he had just received. "This is outrageous," he cried out. "Unheard of. I have loyally served the king and the king's father before him. If he learned anything from his father, the king should know not to trifle with someone in my position. I know many things, many secrets. A person in my position should be held in esteemed, not degraded like this." 
 
 Tara had never seen her father fume like his, never seen him talk about his status and position in such a a away as to elevate himself above others. Yet here he was in this small room in an inn somehwere in the capital city asseting that he was important and needed to be heard and taken seriously.
 
@@ -824,7 +826,7 @@ Her father looked wild and desperate all of a sudden, "That cannot be. There mus
 
 "Well the forgeries are getting better and better. It's a fine job whoever produced this."
 
-Her father stood up tall, as if offended by the suggestion that this invitation was fake, "I would never. Do you know who I am? I have served as the Chief Recorder for well over twenty years. I served the king's father before that."
+Her father stood up tall, as if offended by the suggestion that this invitation was fake, "I would never. Do you know who I am? I served the king's father as the Chief Recorder for well over twenty years. I have continued to loyally serve our new ruler as well."
 
 The guard scratched his beard, "That all might be so, or just a convincing cover story, but unless you're in the log, I'm not authorized to let you in."
 
@@ -849,3 +851,33 @@ Tara had never heard her father talk about their distance from court as a decisi
 She couldn't help but wonder, as they sat mere feet from the kingdom's seat of power, what had been denied to her due to their distance from that seat. What would life had been like if they had traveled regualrly to the capital, had been none to the greatest families in teh kingdom, not just the local gentry of their little corner of the world. 
 
 She didn't have long to dwell on these possibilities once the door opened and the man who had visited them at the inn stepped into the breach, instructing them even as he turned back to the hall, "The king will see you now."
+
+They passed through the doors and into a long narrow windows. Tall slender windows ran from floor to ceiling on either side of the hall. At the far end, raised on a dias, at the king, whispering into the ear of someone who stood beside him. 
+
+At first glance, the king was nothing like what Tara had expected. He wasn't regal or kingly at all. He sat slouched in the throne, seemingly more engaged in the side conversation he was having than on the two visitors entering his throne room. His hair was disheveled, his clothes slovenly. He seemed bored, and perhaps even boring to Tara. To say she was disappoitned by this first introduction, would be an understatement.
+
+They stopped where they were instructed to stop. At her father's nudging, Tara bowed alongside him and held the bow until the king acknowledge them. Unforutnately, the conversation took hold over the king again, and he continued talking and laughing instead of acknowledging them.
+
+Tara started to roll her neck from side the side under the strain of holding this position for so long. Finally the older man, seemingly some kind of advisor, coughed and caught the king's attention. The king looked up at the them and said, "Yes, of course, who do we have here?"
+
+The advisor stepped forward, "This is Mr. Arch and his daughter." Again following her father, she bowed lower, into more of a curtsey as Ms. Reedy had often shown her.
+
+"Yes, and he is?" the king already seemed impatient with the proceedings. There were two attendants waiting off the side who had caught his attention. He seemingly was more interested in whatever messages they had to convey than his father.
+
+Her father's pride got the better of them and he spoke up for himself, "Your highness, I am the Chief Recorder of the western lands. I served your father and was apprenticed during your grandmother's reign."
+
+Tara could not tell if the king or the advisor was more annoyed by her father's self-assertion. The king looked over at the advisor and careless said, "Chief Recorder, I thought we were recalling those."
+
+The advisor quickly responded, "It was the topic of a discussion. No action was decided. If you recall, your highness, the council had to adjourn rather suddenly."
+
+"Ah yes, I vaguely recall there being a hunt to attend to." The king mused to himself, or to the room, or both, "I do love the distraction that a hunt provides. I am indiffernet to hunting, of course, but anything to relive the tedium of this position, I welcome. Even in my distraction I am a more effective ruler than my father, or so I am told. The kingdom was yearning for my rule. You might say it was my destiny to improve this kingdom, to make it great again."
+
+The king went silent and in the pause, her father spoke up, "Your majesty I have come to you with urgent news and an even more urgent request."
+
+The king waved his hand back and forth as if trying to swat the words. "Urgent! You speak to me of urgent. I deal in nothing but urgencies, all day. Few rulers have dealt with as many urgent matters as I seem to."
+
+Again her father was struggling to muster the king's attention, "I have brought a reading from my vigilant, that I felt it necessary to review with you. And in light of that discussion hoped to make my request."
+
+Unfortunately for her father, he had lost the king's attention again. The attendants who had been waiting were waved over. They began reviewing various documents they held with the king. The king was quickly nodding and glancing at the documents, approving and disapproving of things in rapid succession. When the attendants left, the king clapped his hands and stood, "I have grown tired of this audience. If you saw you have matters to review and study, then give them to my man, Mr. Stewart. He will act in abstentia for me and convey to me what needs to be conveyed. In the meantime, I have to finalize the preparations for tonight's ball." Now, as if for the first time, he took notice of Tara. He looked back at her father as if somehow surpised that the two were conneted, "You should be sure to attend with your lovely daughter, Mr...."
+
+"Arch, your majesty. Yes, we would be delighted to do that."
