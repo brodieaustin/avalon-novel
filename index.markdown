@@ -250,11 +250,11 @@ Gregory replied in a resigned tone, "Yes, ma'am."
 
 Once they arrived Ms. Reedy instructed Gregory to inform the household of what had happened. While he disappeared in the house, Tara and Ms. Reedy coaxed Avalon out of the carriage, careful to keep her wrapped up tight. Tara's father appeared at the cottage's threshold visibly distraught. Gregory was behind him. The rest of the house staff had come to the front door as well, alerted to something happenning by the general commotion. 
 
-Once they began to realize what was happening they shrank back inside. Tara's father stepped forward and instructed Gregory to fetch the doctor from town. Her father turned to Tara and Ms. Reedy and said, "We must take her to the tower. Follow me."
+Once they began to realize what was happening they shrank back inside. Tara's father stepped forward and instructed Gregory to fetch the doctor from town. Her father turned to Tara and Ms. Reedy and said, "We must take her to the observatory. Follow me."
 
-Tara was surprised by her father's instructions. She had never been allowed to see the tower, much less enter it. For as long as she remembered it was forbidden. Not even Avalon would tell her much about the structure. Tara and Ms. Reedy struggled to advance a few steps with Avalon, but struggled with the burden.
+Tara was surprised by her father's instructions. She had never been allowed to see the observatory, much less enter it. For as long as she remembered it was forbidden. Not even Avalon would tell her much about the structure. Tara and Ms. Reedy struggled to advance a few steps with Avalon, but struggled with the burden.
 
-Her father who was outpacing them, stopped and turned back, "Avalon, we must get you to the tower." As if sensible to his instructions, she nodded her head weakly, then shrugged off Tara and Ms. Reedy's help and began plodding her way after Tara's father. They disappeared behind a hedgerow, leaving Tara standing in the front yard, with bloodied hands, wondering what would happen to Avalon.
+Her father who was outpacing them, stopped and turned back, "Avalon, we must get you to the observatory." As if sensible to his instructions, she nodded her head weakly, then shrugged off Tara and Ms. Reedy's help and began plodding her way after Tara's father. They disappeared behind a hedgerow, leaving Tara standing in the front yard, with bloodied hands, wondering what would happen to Avalon.
 
 Ms. Reedy guided Tara inside and tried to keep her as occupied as she could. This was difficult to do. Tara found herself overcome with restless energy. She was unable to sit for more than a few minutes at a time. She paced back and forth, interrupted only by her attempts to focus on whatever task Ms. Reedy placed in front of her.
 
@@ -264,7 +264,7 @@ In all of her pacing and worrying, she realized how little she really knew about
 
 Then she would be gone again. Being gone usually meant more stories. So, for Tara, these absenseces were well worth the wait, especially recently, when Tara relished stories about the outside world more than ever. Avalon could have recounted every minute of every expereince she had ever had or heard about and it still wouldn't have been enough for Tara. 
 
-Finally Gregory brought the horses to a jerking halt. The doctor alighted from the carriage and met her father who led the doctor back to the tower, where he had taken Avalon, where she could not see what was happen and could only wait until something happened that she could know about.
+Finally Gregory brought the horses to a jerking halt. The doctor alighted from the carriage and met her father who led the doctor back to the observatory, where he had taken Avalon, where she could not see what was happen and could only wait until something happened that she could know about.
 
 ***
 
@@ -404,11 +404,13 @@ Tara felt serious all of a sudden and considered what Ms. Reedy said. She nodded
 
 ###
 
-With Ms. Reedy gone, Tara wasn't sure what she would do with her days, or what remained of her days. There was no news about Avalon and her recovery. The doctor had not visited again, leading Tara to assume that Avalon would get better sooner rather than later. Tara wanted to search her out. Avalon's room remained empty. Tara knew this after checking it several times throughout the day. She assumed that Avalon was still in the tower. Going there wasn't a possibility since the tower was off limites to her.
+With Ms. Reedy gone, Tara wasn't sure what she would do with her days, or what remained of her days. The only bright spot during the slow passing of these dull days was the delivery of her new dress. When it was taken to her room, she opened the box and felt her heart race in excitment, but as soon as she closed it back up, the moment passed and the dress faded from her mind.
 
-Tara knew that the tower was central to her father's work, but she didnt' fully understand how. After all, he spent most of his time in the study in the cottage, doing whatever he did there. But always upon Avalon's returned he would disppaer for the tower, sometimes for long stretches of time. He would be back in his office, then disappaer again. Once Avalon left again on another journey, he would settle back into his routine in the house.
+There was no news about Avalon and her recovery. The doctor had not visited again, leading Tara to assume that Avalon would get better sooner rather than later. Tara wanted to search her out. Avalon's room remained empty. Tara knew this after checking it several times throughout the day. She assumed that Avalon was still in the observatory. Going there wasn't a possibility since the observatory was off limites to her.
 
-She also knew that others in the household held the tower to be a place to be feared, at least avoided. Many avoided talking about it altogether. As she paced around the house, she thought more about her father's passing comment that he had kept too much from her.
+Tara knew that the observatory was central to her father's work, but she didnt' fully understand how. After all, he spent most of his time in the study in the cottage, doing whatever he did there. But always upon Avalon's returned he would disppaer for the observatory, sometimes for long stretches of time. He would be back in his office, then disappaer again. Once Avalon left again on another journey, he would settle back into his routine in the house.
+
+She also knew that others in the household held the observatory to be a place to be feared, at least avoided. Many avoided talking about it altogether. As she paced around the house, she thought more about her father's passing comment that he had kept too much from her.
 
 As she turned over this comment in her mind, she wondered what he meant by that. She could assume it had something to do with Avalon, with his position. But beyond that she had so few bits of knowledge to cling on to to even start to speculate. She knew she lived a sheltered life and didn't understand much of the outside world. Avalon made that clear, even Ms. Reedy made that clear. But that restless desire to burst out into the world that she felt so often, as recently as the other day, suddenly changed into something more unsettling. Tara began to look at her immediate surroundings and feel that maybe things weren't as they seemed. 
 
@@ -427,8 +429,6 @@ Her father released her from service, which percipitated something of a crisis i
 Ms. Reedy had not said this to Tara direclty, of course. But Tara could overhear Ms. Reedy talking loudly to her father. She knew from her experience with her previous two governesses that her father had little patience for managing these affairs. That conversation between Ms. Reedy and her father had ended with a curt, "Yes, sir" and a closing door. After that Ms. Reedy approached Tara with a iron-like resolve to mould her into something suitable beyond "life in the wilderness" as she liked to put it.
 
 Tara didn't know if she was ready for life outside of this place or not. For so long, leaving home was something far off, something she would do as the first step in a grand adventure. And now the crisp crinkle of the leaves, the gurgle of the stream filled Tara with a longing for things to stay the same, for nothing to change. But it was going to change and she felt powerless to stop it.
-
-###
 
 Footsteps in the woods interrupted her reverie by the creek. She stood to leave before hearing her name whispered in the woods, a soft faint "Tara...Tara..." trickling out through the trees. She stopped and watched carefully as Avalon appeared, stepping gingerly over branches and foliage, holding her side which had been heavily bandaged.
 
@@ -518,7 +518,11 @@ He said good night and left her room. Tara tossed in bed trying to sleep. Had sh
 
 They set out later than her father wanted. He paced and worried over the slow progress that preparations were taking. The house staff had dwindled to just two people--Frannie, the maid, and Gregory the driver. The few others who had remained left early that morning, finishing their essential chores, and leaving notes in the kitchen announcing their intention to find work elsewhere.
 
-Frannie helped her pack the rest of her things. Tara lamented that she did not have the dress that had been ordered from the dressmaker. She sulked over it the fact while readied herself for the journey. Ultimately, there was nothign to be done about it, so she let the sulking mood slip away and made her final perparations--packing a quarto of paper that she had sewn together herself. a drawing pad and charcoals, and several books.
+Frannie helped her pack the rest of her things. Tara worried over whether or not to bring her new dress. She reasoned over it with Frannie for long time, trying to work out whether or not they would still be calling on anyone or attending any parties. Frannie, who was doing her best to stay busy while Tara worked this out out loud, did her best to keep up with a series of "I think so" and "That sounds right, Miss Tara." 
+
+Tara finally talked it over so much that Frannie had run out of tasks to do. Tara realized that she was standing there holding the very dress they were discussing. Tara sighed and said, "I suppose we should bring it if there is room."
+
+"Just barely, and if I rearrange a few things, we can do so without damaging it." She handed Tara some of the incidentals that had been used to fill out the trunk and handed them to Tara. Tara packed these items--a quarto of paper that she had sewn together herself. a drawing pad and charcoals, and several books--in a small traveling case that would sit neatly on top of her trunk..
 
 When the time came to get her trunk downstairs, there was no one to help. Frannie had been called away by her father for some task or another. So, Tara did her best to drag her trunk down from her room. It bounced down the staircase and nearly exploded in the hallway. But she righted it and got it outside. Gregory stepped in and hoisted the trunk on his shoulder and attach it to the back of the carriage.
 
@@ -796,8 +800,6 @@ Tara clapped, "That is wonderful news!" In her excitement, she forgot all about 
 
 They left the inn later for the appointment. They hired a cab to help them navigate the twisting city streets. He pointed a few landmarks that he recognized from the cab, but observed several times how different the capital was. All that Tara could see around her were people coming and going, trash that piled up in the streets, animala and children running here and there. 
 
-This started to change as they approached the walls that separated the palace from the rest of the city. As they had been told, the gates were thrown open and a surprising amount of people flowed in and out of them. Most of the traffic was soldiers out on patrol, coming and going. Tara thought she caught of glimpse of the two soldiers that had harassesd her earlier, but she did not exert much effort in confirming this.
-
 They alighted the carraige just before the gates. There was a disorderly line of people stopped before the gates, appealing to the guards to be let in for one reason or another. Her father collected his invitation and the sheafs of paper he had brought from home to present to the king. Two guards stood at either side of the gate, trying to keep the crowd as far back from the gates as possible. Above them, several more guards paced back and forth. One guard carried a long halbard and used it from on high to poke and prod at the people who were not easily pacified. 
 
 Two more guards walked the line on either side, looking over the people standing there carefully. Perhaps they were reviewing each person for certain traits or qualities that might warrant stopping them, but Tara could not tell what those qualities might be. One of these guards stopped in front of a peddlar who has had a pole straddled across his bag, from which several rabbits swung gently as he walked. The guard examined the rabbits and did a cursory search of the peddlar then waved him to the front of the line the gate, shouting out, "Let 'em through."
@@ -878,6 +880,43 @@ The king waved his hand back and forth as if trying to swat the words. "Urgent! 
 
 Again her father was struggling to muster the king's attention, "I have brought a reading from my vigilant, that I felt it necessary to review with you. And in light of that discussion hoped to make my request."
 
-Unfortunately for her father, he had lost the king's attention again. The attendants who had been waiting were waved over. They began reviewing various documents they held with the king. The king was quickly nodding and glancing at the documents, approving and disapproving of things in rapid succession. When the attendants left, the king clapped his hands and stood, "I have grown tired of this audience. If you saw you have matters to review and study, then give them to my man, Mr. Stewart. He will act in abstentia for me and convey to me what needs to be conveyed. In the meantime, I have to finalize the preparations for tonight's ball." Now, as if for the first time, he took notice of Tara. He looked back at her father as if somehow surpised that the two were conneted, "You should be sure to attend with your lovely daughter, Mr...."
+Unfortunately for her father, he had lost the king's attention again. The attendants who had been waiting were waved over. They began reviewing various documents they held with the king. The king was quickly nodding and glancing at the documents, approving and disapproving of things in rapid succession. When the attendants left, the king clapped his hands and stood, "I have grown tired of this audience. If you say you have matters to review and study, then give them to my man, Mr. Stewart. He will act in abstentia for me and convey to me what needs to be conveyed. In the meantime, I have to finalize the preparations for tonight's ball." Now, as if for the first time, he took notice of Tara. He looked back at her father as if somehow surpised that the two were conneted, "You should be sure to attend with your lovely daughter, Mr...."
 
 "Arch, your majesty. Yes, we would be delighted to do that."
+
+The advisor, Mr. Stewart, stepped forward to lead them out, "Very good, your majesty. I will provide them with the appropriate information."
+
+Already distracted, the king replied, "Yes, see to it."
+
+***
+
+For Tara, everything that had been disappoitning and strange about their trip up till now ceased to exist for the rest of day. She was thrilled by the prospect of being able to attend a party, just as she had wanted hope to do when they visited.
+
+Tara wasn't skilled at dressign herself in fine gowns, but she managed as best she could with some help from her father. She prepared her hair in a small, cloudy mirror that hung over the wash basin and wondered out loud what the party would be like. Her father did not add much to the conversation, but Tara didn't take much notice of the fact that he was not animated by the same excitement that she was. 
+
+Finally the hour approached for the ball to start, so they made their way to palace. The streets were quieter during the day and Tara noticed that they were particularly quiet near the palace. Then she understood why. When she did catch sight of anythign moving in the streets, the movmeent was almost certainly soldiers, patrolling in groups or three of four. She also saw more soldiers stationed on the streets leading up to the palace. 
+
+The motley line of people at the palace gates was now replaced by an orderly line of carriages. One by one the carriages were let into the palace grounds. Tara's father marveled over the scrutiny the guests were receiving. "In my time," he explained, "the gates were thrown open. People flowed in and out of them. I suppose that is not the way now."
+
+Tara was only half listening to her father. She thought she caught of glimpse of the two soldiers that had harassesd her earlier, but she did not exert much effort in confirming this.
+
+As they prepared to enter the palace for the second time today, Tara tried to rehearse all of the instructions that Ms. Reedy had given her to prepare her for this moment. She looked around, eyeing the rest of the crowd to determine who was attending this ball and how she should behave toward them. Unfortunatley for her, there was too many people to watch and track. She could not take it all in and started to feel overwhelmed as they entered.
+
+When they were announcd at the door, a few curous heads turned then returned back to conversations. Together, they walked through the central entryway then up to the stairs to the ballroom on the next floor. When the they entered the ballroom, Tara was overwhelmed by how expansive it was and how full of people it was. The guests seemed too numerous to count. Tara tried study each face as they passed by people so that she could recall them later should the need arise. Quickly, she gave up on this. After that, she lost track of the faces, the dresses, and the chatter around them.
+
+In the ballroom, Tara and her father attracted more attention. People seem to take particular notice of her dress. She felt that she received many nods of approval. These reactions eased her mind about fitting in and being accepted by the guests. She was more focused, however, on the large numbers of young people in attendnace--some a little younger than herself, most older. As the music and dancing began, there seemed to be a steady stream of dance partners for her, at least for a turn or two, before swirling off to engage in other pursuits.
+
+Now that the evening's attention had been shifted to the dancing, guests crowded the edges of the ballroom, while the dance floor saw a steady flow of gowns and long tailed coats, feet tapping and scraping their way across the intricate patterns in even more intricate patterns of arched arms and sweeping legs. Half way through, Tara had to take a break. She was flushed and could feel sweat starting to roll down the angles of her shoulder blades. She sat and felt content and chatted merrily with the guests around her.
+
+She knew that Ms. Reedy would have been very satisfied with her comportment and bearing. She was not so sure of her father; she saw him chatting in corner with several older gentlemen who did not seem particualry well-kept or highly regarded by the other guests. When they noticed her surveying them, each of the elderly gentlemen nodded approvingly in her direction. She felt a flush of embarassment at that moment and wondered why her father had attached himself to these people, of all the people in the room. She could only imagine the stories and memories they were sharing and reliving together amidst the whirl finery around them.
+
+The musicians began to play again and dancers found partners and began to assemble on the dance floor. The tune and tempo dictating a line dance, with the dancers pairing up as they criss crossed the floor, then remerged back in to the line.
+
+As the princess took her place in the line of other ladies dancing this round, she could hear the mood of the room shift. Somehow, all at once, everyone’s attention shifted to a new center of gravity. Tara looked around to understand what was distracting everyone from the dance floor, which normally was the center of attention for a ball. Then she realized what had happened. She realized the moment that she brought her own attention back to the lines before her and looked across to see a new dance partner standing across from her. She didn't know who the young man was, but he bore a striking resemblance to the king.
+
+The tittering and talk in the room caused the musicians to stop their tunings momentarily. The young man, smiling generously at the all of the attention washing over him, gestured for the room to quiet down, which it did almost immediately. He nodded to the lead musician. The musicians harmonized their instruments and began to play. The music moved at a brisk pace. It had intricate timing, and sometimes the tempo would change suddenly, signaling a new formation or movement in the dance. Dancing in this way required the dancer’s complete concentration to fully appreciate the directions being give them.
+
+The musicians were skilled enough to not just blindly lead the dancers along, but to respond to the dancers as well. A couple who seemed too attached might cause a rapid shift in the music to indicate that it was time to pair up again, or another pairing might catch and hold the room’s attention, causing the musicions to stretch out the theme a little longer.
+
+Certainly, they responded to the moment when she finally crossed paths with the  young man The music seemed to change entirely, signaling that they would be dancing with these partners for a while. Indeed, every eye was on them as they held their dancing poses, bowing, dipping, and crossing each other in time with the music. The young man almost seemed indifferent to the fact that they were dancing together. But the music sped up again and they started to travel the dance floor at a steady trotting pace. The music slowed again with them in the center of the room.
+
