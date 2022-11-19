@@ -920,3 +920,89 @@ The musicians were skilled enough to not just blindly lead the dancers along, bu
 
 Certainly, they responded to the moment when she finally crossed paths with the  young man The music seemed to change entirely, signaling that they would be dancing with these partners for a while. Indeed, every eye was on them as they held their dancing poses, bowing, dipping, and crossing each other in time with the music. The young man almost seemed indifferent to the fact that they were dancing together. But the music sped up again and they started to travel the dance floor at a steady trotting pace. The music slowed again with them in the center of the room.
 
+When their dance ended, Tara found herself standing alone again on the dance floor. She looked around for the young man but he had disappeared in the crowd. She felt a momentary feeling of disappointing, perhaps hoping that they could have kept dancing all night together. But that was not meant to be.
+
+The musicians were warming up to play again after a brief pause. Tara waited for the next round of dancing to begin. She look over and saw her father, sitting in a chair looking tired and bored. When he noticed her looking at him, he perked up momentarily and smiled. He didn't trick her for long and fell back into his slumped posture and slack looking face as soon as it seemed she was not lookign at him.
+
+She went up to him and said, "Papa, dance with me, won't you?"
+
+"Ah me? No this is sport for younger people than me," he replied.
+
+"Please, papa. At least this once. It would make me so very happy."
+
+Her father could not resist her entreaties for long. He finally stood up and followed her into the crowd of dancers. Just as they took up position in the line, the music started again. The music was slower paced this time, allowing the dancers to weave their lines in and out of each other at a pace her father easily maintain. Dancers would break off for several bars the the line would form again.
+
+While she danced, Tara felt the happiest she could remember feeling in quite some time. Perhaps not since she was a little girl, with hardly a care or concern to bother her, or certainly no cares that could unsettle the self-centered contentment of a child in her circumstances. It might be fairly said that these were indeed, the happiest moments of her life.
+
+The music stopped suddenly, putting an end to her reverie. The crowd let out a cry of confusion followed by the scuffing of feet as every one turned to search ouf the reason for the evening's entertainment being so ruedly interrupted. Fortunately for the guests, they were not kept in suspense for long. Unfortunatley for Tara dn her father they quickly discovered the reason for the music and dancing stopping so abruptly.
+
+The discovery started with the feeling that people were beginngin to look at them, but not in they pleasant way that the people before had watched her dance. Instead of casting about for an explanation, it seemed like every head in the room began turning towards Tara and her father. A passageway opened in the crowd and coming towards her, Tara could see four soldiers and the king's advisor from earlier, Mr. Steweard walking towards them.
+
+The guards stopped to form a square around them and began pushing back the people. A few brave souls cried out that this was an outrage and an abuse of the king's power. One particuarly vocal person was seized by a fifth guard and removed from the ballroom. Tara and her father stood alone now in the room, surrounded by soldiers and no one else.
+
+With the guards in place, Mr. Stewart drew closer and held up a piece of paper. "A proclomation from the King," he announced, raising his voice to be heard over the ripple of chatter in the room. "Let it be known that from this day forward, Nolan Arch shall be considered a traitor to the king and the body politic of the kingdom. He is sentenced to imprisonment until his natural death. What is his is not the king's. His issue and heirs shall henceforth be stripped of any claim to preference or privilege."
+
+Tara felt terrified as two of the guards approached them, seized her father. He crumpled in the guard's grip. Tara rushed forward trying to grab for the guards, pull them away from her father. She cried out, "There must be some mistake. This is a mistake..." The guard easily shrugged off her attempts to free her father. A third guard then grabbed her arm. They were, all of them, escorted from the palace with Mr. Stewart following closely behind them.
+
+# Chapter 6 #
+
+Tara could feel the man's eyes searching over her, looking for signs of inconsitency on her story. She kept her arms close and hands held tight to hide any threadbare patches in her clothes, to keep her rough hands out of site. "You can be puntunctual and do your duties quietly and as you're told?" he asked her finally.
+
+"Yes, sir. I'm a hard worker. I'll do a good job." She tried to keep the desperation out of her voice and speak matter of factly. She had learned the lesson many times over that maintaining appearances mattered greatly.
+
+He leaned back in his chair. He looked at her again and a shrewed look came into his eyes, "I suppose you're from the penal colony, aren't you? Seems like everyone here is one way or another. Or if they weren't they were at some point." He paused, "Well?"
+
+Tara didn't know how to respond. He was asking the question so matter of factly that she decided it was best to be truthful, "Yes, sir."
+
+"Hard to imagine someone as young as you doing something the land there. What is it? A family member? Someone close to you?"
+
+"My father, sir."
+
+"The term?"
+
+"Life. He's five years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close as both a talimen, but also a mark of shame. She had been told early on to only use it if absolutely needed. 
+
+The man took the letter from her and lowered his glasses perched on his head to read it. "Well this all sounds very official."
+
+"Sir, if I may?"
+
+"Yes?"
+
+"My father. He's taken ill and needs medicine and doctors. The prison will only do so much. So I was hoping to..."
+
+The man cut her off, "To trick me into thinking you were a respectable house maid who take her earnings to extend the life of an incarcerated criminal?" Tara's face must have expressed a mixture of rage and terror at the same time. The man interjected, "There's no need for that look. I'm a man of the world, a simple man, but a man of the world. I've seen much of how the world works, the parts it wants you to see and the parts it doesn't. If you're punctual and do your duty, you may have the job and use the earnings for whatever you wish. I suppose you can read. You speak like someone who can read."
+
+Again, she hesitated to be too forthcoming, having learned early on that it was better to conceal any refinement, education. After their time in the penal colony, it hadn't been too hard. Much of the sheen of her past life had been rubbed away by worry and toil. "I can read." 
+
+He dipped the tip of his pen in a small jar of ink and scribbled out several lines then handed her the paper. "That is your list of duties. I expect you to be here twice a week in the morning. I wake early and leave early. If you're not prompt, then you'll create confusion and delay and I won't like that. Understood?"
+
+"Yes, I understood."
+
+"Very well. Then you are hired. I will see you in two days times." 
+
+"Very promptly and on time."
+
+"I should hope so for your father's sake." She turned to leave. The man stood up to show her to the door her. He reached into a small pocket in his waistcoat and retrived a few coins to press into her hand. She felt a rush of gratitude and moved to say thank you, but he stopped her. "Consider this an advance against future earnings. You'll work for that, don't you forget."
+
+Tara went downstairs and exited onto the dusty street. She stopped, looking around, and heard someone call out to her, "So, did you get the job?" A woman stepped out of the shadowy doorway where she had been waiting. Together they turned to walk down the plank sidewalks. The woman was several years older than Tara, but had been worn down much more by life. Her clothes were generally in worse condition. She had a slight crook in her neck and already wiry streaks of gray appeared in her hair.
+
+Tara held out her first, clenched tighly around the coins. The weight of them in her hand felt strange, almost out of place, but that weight also brough a sense of comfort. She opened the fist and showed the woman the money. The woman spun around and clapped. "I knew you could do it!" She reached to pick one of the coins, a smaller rust colored one.
+
+Tara drew back her hand, but the woman cried out, "I deserve a finder's fee. Seems only fair."
+
+"Finder's fee for what?"
+
+"For bringing you to this job?"
+
+"You only told me about it after you applied yourself and were turned down."
+
+"But I knew you'd be just the person. Fit the bill and all that, didn't you."
+
+"I suppose."
+
+The woman studied herself in plate of glass they were passing by, "Yes, I'm just rag and bones already in my young age. You're still a proper city lady, ain't you?"
+
+"I'm not from the city, you know that."
+
+"But you've got breeding and pedigree. No use denying. Everyone can see it. From the first even."
+
