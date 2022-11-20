@@ -950,7 +950,7 @@ Tara could feel the man's eyes searching over her, looking for signs of inconsit
 
 "Yes, sir. I'm a hard worker. I'll do a good job." She tried to keep the desperation out of her voice and speak matter of factly. She had learned the lesson many times over that maintaining appearances mattered greatly.
 
-He leaned back in his chair. He looked at her again and a shrewed look came into his eyes, "I suppose you're from the penal colony, aren't you? Seems like everyone here is one way or another. Or if they weren't they were at some point." He paused, "Well?"
+He leaned back in his chair. He looked at her again and a shrewed look came into his eyes, "I suppose you're from the prison, aren't you? Seems like everyone here is one way or another. Or if they weren't they were at some point." He paused, "Well?"
 
 Tara didn't know how to respond. He was asking the question so matter of factly that she decided it was best to be truthful, "Yes, sir."
 
@@ -972,19 +972,21 @@ The man took the letter from her and lowered his glasses perched on his head to 
 
 The man cut her off, "To trick me into thinking you were a respectable house maid who take her earnings to extend the life of an incarcerated criminal?" Tara's face must have expressed a mixture of rage and terror at the same time. The man interjected, "There's no need for that look. I'm a man of the world, a simple man, but a man of the world. I've seen much of how the world works, the parts it wants you to see and the parts it doesn't. If you're punctual and do your duty, you may have the job and use the earnings for whatever you wish. I suppose you can read. You speak like someone who can read."
 
-Again, she hesitated to be too forthcoming, having learned early on that it was better to conceal any refinement, education. After their time in the penal colony, it hadn't been too hard. Much of the sheen of her past life had been rubbed away by worry and toil. "I can read." 
+Again, she hesitated to be too forthcoming, having learned early on that it was better to conceal any refinement, education. After their time in the prison, it hadn't been too hard. Much of the sheen of her past life had been rubbed away by worry and toil. "I can read." She paused then ventured, "And write as well." 
 
-He dipped the tip of his pen in a small jar of ink and scribbled out several lines then handed her the paper. "That is your list of duties. I expect you to be here twice a week in the morning. I wake early and leave early. If you're not prompt, then you'll create confusion and delay and I won't like that. Understood?"
+"Well your writing won't be of much help to me, but it's useful that you can read.." He dipped the tip of his pen in a small jar of ink and scribbled out several lines then handed her the paper. "That is your list of duties. I expect you to be here twice a week in the morning. I wake early and leave early. If you're not prompt, then you'll create confusion and delay and I won't like that. I will let you inside. If there are updated instructions, I will leave them written out. Understood?"
 
-"Yes, I understood."
+"Yes, I understand."
 
 "Very well. Then you are hired. I will see you in two days times." 
 
 "Very promptly and on time."
 
-"I should hope so for your father's sake." She turned to leave. The man stood up to show her to the door her. He reached into a small pocket in his waistcoat and retrived a few coins to press into her hand. She felt a rush of gratitude and moved to say thank you, but he stopped her. "Consider this an advance against future earnings. You'll work for that, don't you forget."
+"I should hope so for your father's sake." 
 
-Tara went downstairs and exited onto the dusty street. She stopped, looking around, and heard someone call out to her, "So, did you get the job?" A woman stepped out of the shadowy doorway where she had been waiting. Together they turned to walk down the plank sidewalks. The woman was several years older than Tara, but had been worn down much more by life. Her clothes were generally in worse condition. She had a slight crook in her neck and already wiry streaks of gray appeared in her hair.
+She knew that she was supposed to turn to leave, but stood in place, trying to muster up the courage to ask for a small advance. Whether because he anticipated the question or was ready for her to leave, the man stood up and reached into a small pocket in his waistcoat and retrived a few coins to press into her hand. She felt a rush of gratitude and moved to say thank you, but he stopped her. "Consider this an advance against future earnings. You'll work for that, don't you forget."
+
+He showed her to the door and promptly closed it behind her. Tara went downstairs and exited onto the dusty street. She stopped, looking around, and heard someone call out to her, "So, did you get the job?" A woman stepped out of the shadowy doorway where she had been waiting. Together they turned to walk down the plank sidewalks. The woman was several years older than Tara, but had been worn down much more by life. Her clothes were generally in worse condition. She had a slight crook in her neck and already wiry streaks of gray appeared in her hair.
 
 Tara held out her first, clenched tighly around the coins. The weight of them in her hand felt strange, almost out of place, but that weight also brough a sense of comfort. She opened the fist and showed the woman the money. The woman spun around and clapped. "I knew you could do it!" She reached to pick one of the coins, a smaller rust colored one.
 
@@ -1000,9 +1002,55 @@ Tara drew back her hand, but the woman cried out, "I deserve a finder's fee. See
 
 "I suppose."
 
-The woman studied herself in plate of glass they were passing by, "Yes, I'm just rag and bones already in my young age. You're still a proper city lady, ain't you?"
+The woman studied herself in plate of glass they were passing by, "Yes, old Maggie is just rag and bones already in my young age. You're still a proper city lady, ain't you"
 
 "I'm not from the city, you know that."
 
-"But you've got breeding and pedigree. No use denying. Everyone can see it. From the first even."
+"But you've got breeding. No use denying. Everyone can see it. From the first even."
+
+"Maybe." 
+
+"Be dear and give old Maggie a finder's fee." Maggie held our her hand and made a face like a child pleading for a treat. Tara felt amused by the caper and handed the small coin over. Maggie snatched the coin before it was taken away, kissed Tara on the cheek and said, "I'll see you back at the home."
+
+Maggie, usually a spendthrift with any extra coin she came into contact with, skipped off to spend this particular coin somewhere. Tara had met Maggie not long after her relocation to the prison with her father, which Maggie liked to called their home. She had not liked Maggie at first, who teased her endlessly about her fine clothes and fine wares that she brough with with her.
+
+"You packed for a holiday?" Maggie had said the first time she came into the two room cell that Tara shared with her father. She had not invited Maggie into their rooms, but the woman somehow insinutated herself inside without Tara realizing it. This, Tara came to realize, was Maggie's way. Maggie had a genius for getting things she wanted with the least amount of effort possible. 
+
+After a few months, the over teasing gave way to a genial ribbing, and a ready reminder that, while Tara might consider herself of higher status, she was in the same situation as everyone else at the prison, with few prosepects of getting out or moving beyond it. Maggie, as Tara learned, had lived in the prison since she was nine or ten, having moved there when her mother was imprisoned. "After my dear old dad died, we learned he had left considerable debts on account of another life he lived in a nearby town. My mom had to take on his debts, then was jailed when she couldn't repay."
+
+Maggie had grown into womanhood along with a younger brother and sister in the prison and knew its ways and the ways of the town well. Tara was a reluctant student at first, and didn't venture into town until 6 months or so had elapsed. Maggie chided her for staying copped up in her cell with her father or in the prison yard. "You're not the one serving the sentence, you know. You are allowed to leave. Go out, earn some coin. The warden don't mind a bit, it's less he has to provide for."
+
+"They're not worried about the prisoners getting out?" Tara had asked, somewhat incredulous that the prison was so lax.
+
+In response, Maggie had waved her arms around at the various cells. "Have you seen the broken up people in here? They were defeated the moment they sat foot in the prison walls, probably before that. These aren't scheming murders after all."
+
+Maggie finally convincend, or compelled, Tara to venture into town with her. The town itself was small, though busy. It existed at a crossroad on a trade route, though most of the town existed to maintain the prison. It was less rustic and quaint that the country town she had grown up near, but not nearly as built up and bustling as the capital.
+
+At the time, Maggie was wide eyed when Tara told her that she had visited the capital and even been inside the palace. She liked to hear Tara tell stories about the people and buildings, the fine clothes and the dashing soldiers. Over the last few years, Tara had repeated the stories countless times. Each time she tried to mine some new detail or fact from her memory to delight Maggie. It is possible that Tara had exaggerated a few details or inserted a few imaginative alterations to her story. She she had done so in such a convincing manner that she could no longer see the seams where the true story had been stitched to the invented one.
+
+With money in her hands now, Tara made her way to the apothecary's shop to purchase the medicines that the doctor insisted that her father needed. When she finally made her way inside the shop, the old man sitting at the counter creaked up on his feet to read from the script that the doctor had given her.
+
+The apothecary read the list and shook his head. He looked up at her with a puzzled look, "These can't be for you? You're the very image of health, as far as I can see."
+
+"No, sir. I'm sorry I wasn't more clear. This is for my father."
+
+"Ah, I see. Yes, well that makes more sense."
+
+The apothecary didn't move immediately to provide her with the requested medicince, leavign her confused. She hesitatingly asked, "Is something wrong?"
+
+The odl man shook his head again, "No, no nothing wrong. I'm just surprised that's all."
+
+"Surpised by what?"
+
+"Well, if I may put this delicately, surpsrised that you are not more upset right now."
+
+"I'm upset that my father is sick. I've had to work hard to securefunds for the medicine and future visits from the doctor."
+
+"Yes, perhaps so, but I'm afraid based on these medicines that your father is beyind being sick."
+
+"I don't understand."
+
+"Unless I am missing some vital piece of information, your father is dying, young woman."
+
+Tara took a step back, feeling like her breath had been taken from her. "Dying? You must be mistaken, the doctor said nothing..." But she could see in the old man's sad eyes that he was speaking the truth and that the doctor had not lied, per se, but had told the truth in such a way that bad parts were harder to get a hold of and handle.
 
