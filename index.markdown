@@ -1002,7 +1002,7 @@ Tara drew back her hand, but the woman cried out, "I deserve a finder's fee. See
 
 "I suppose."
 
-The woman studied herself in plate of glass they were passing by, "Yes, old Maggie is just rag and bones already in my young age. You're still a proper city lady, ain't you"
+The woman studied herself in plate of glass they were passing by, "Yes, old Helen is just rag and bones already in my young age. You're still a proper city lady, ain't you"
 
 "I'm not from the city, you know that."
 
@@ -1010,25 +1010,25 @@ The woman studied herself in plate of glass they were passing by, "Yes, old Magg
 
 "Maybe." 
 
-"Be dear and give old Maggie a finder's fee." Maggie held our her hand and made a face like a child pleading for a treat. Tara felt amused by the caper and handed the small coin over. Maggie snatched the coin before it was taken away, kissed Tara on the cheek and said, "I'll see you back at the home."
+"Be dear and give old Helen a finder's fee." Helen held our her hand and made a face like a child pleading for a treat. Tara felt amused by the caper and handed the small coin over. Helen snatched the coin before it was taken away, kissed Tara on the cheek and said, "I'll see you back at the home."
 
-Maggie, usually a spendthrift with any extra coin she came into contact with, skipped off to spend this particular coin somewhere. Tara had met Maggie not long after her relocation to the prison with her father, which Maggie liked to called their home. She had not liked Maggie at first, who teased her endlessly about her fine clothes and fine wares that she brough with with her.
+Helen, usually a spendthrift with any extra coin she came into contact with, skipped off to spend this particular coin somewhere. Tara had met Helen not long after her relocation to the prison with her father, which Helen liked to called their home. She had not liked Helen at first, who teased her endlessly about her fine clothes and fine wares that she brough with with her.
 
-"You packed for a holiday?" Maggie had said the first time she came into the two room cell that Tara shared with her father. She had not invited Maggie into their rooms, but the woman somehow insinutated herself inside without Tara realizing it. This, Tara came to realize, was Maggie's way. Maggie had a genius for getting things she wanted with the least amount of effort possible. 
+"You packed for a holiday?" Helen had said the first time she came into the two room cell that Tara shared with her father. She had not invited Helen into their rooms, but the woman somehow insinutated herself inside without Tara realizing it. This, Tara came to realize, was Helen's way. Helen had a genius for getting things she wanted with the least amount of effort possible. 
 
-After a few months, the over teasing gave way to a genial ribbing, and a ready reminder that, while Tara might consider herself of higher status, she was in the same situation as everyone else at the prison, with few prosepects of getting out or moving beyond it. Maggie, as Tara learned, had lived in the prison since she was nine or ten, having moved there when her mother was imprisoned. "After my dear old dad died, we learned he had left considerable debts on account of another life he lived in a nearby town. My mom had to take on his debts, then was jailed when she couldn't repay."
+After a few months, the over teasing gave way to a genial ribbing, and a ready reminder that, while Tara might consider herself of higher status, she was in the same situation as everyone else at the prison, with few prosepects of getting out or moving beyond it. Helen, as Tara learned, had lived in the prison since she was nine or ten, having moved there when her mother was imprisoned. "After my dear old dad died, we learned he had left considerable debts on account of another life he lived in a nearby town. My mom had to take on his debts, then was jailed when she couldn't repay."
 
-Maggie had grown into womanhood along with a younger brother and sister in the prison and knew its ways and the ways of the town well. Tara was a reluctant student at first, and didn't venture into town until 6 months or so had elapsed. Maggie chided her for staying copped up in her cell with her father or in the prison yard. "You're not the one serving the sentence, you know. You are allowed to leave. Go out, earn some coin. The warden don't mind a bit, it's less he has to provide for."
+Helen had grown into womanhood along with a younger brother and sister in the prison and knew its ways and the ways of the town well. Tara was a reluctant student at first, and didn't venture into town until 6 months or so had elapsed. Helen chided her for staying copped up in her cell with her father or in the prison yard. "You're not the one serving the sentence, you know. You are allowed to leave. Go out, earn some coin. The warden don't mind a bit, it's less he has to provide for."
 
 "They're not worried about the prisoners getting out?" Tara had asked, somewhat incredulous that the prison was so lax.
 
-In response, Maggie had waved her arms around at the various cells. "Have you seen the broken up people in here? They were defeated the moment they sat foot in the prison walls, probably before that. These aren't scheming murders after all."
+In response, Helen had waved her arms around at the various cells. "Have you seen the broken up people in here? They were defeated the moment they sat foot in the prison walls, probably before that. These aren't scheming murders after all."
 
-Maggie finally convincend, or compelled, Tara to venture into town with her. The town itself was small, though busy. It existed at a crossroad on a trade route, though most of the town existed to maintain the prison. It was less rustic and quaint that the country town she had grown up near, but not nearly as built up and bustling as the capital.
+Helen finally convincend, or compelled, Tara to venture into town with her. The town itself was small, though busy. It existed at a crossroad on a trade route, though most of the town existed to maintain the prison. It was less rustic and quaint that the country town she had grown up near, but not nearly as built up and bustling as the capital.
 
-At the time, Maggie was wide eyed when Tara told her that she had visited the capital and even been inside the palace. She liked to hear Tara tell stories about the people and buildings, the fine clothes and the dashing soldiers. Over the last few years, Tara had repeated the stories countless times. Each time she tried to mine some new detail or fact from her memory to delight Maggie. It is possible that Tara had exaggerated a few details or inserted a few imaginative alterations to her story. She she had done so in such a convincing manner that she could no longer see the seams where the true story had been stitched to the invented one.
+At the time, Helen was wide eyed when Tara told her that she had visited the capital and even been inside the palace. She liked to hear Tara tell stories about the people and buildings, the fine clothes and the dashing soldiers. Over the last few years, Tara had repeated the stories countless times. Each time she tried to mine some new detail or fact from her memory to delight Helen. It is possible that Tara had exaggerated a few details or inserted a few imaginative alterations to her story. She she had done so in such a convincing manner that she could no longer see the seams where the true story had been stitched to the invented one.
 
-With money in her hands now, Tara made her way to the apothecary's shop to purchase the medicines that the doctor insisted that her father needed. When she finally made her way inside the shop, the old man sitting at the counter creaked up on his feet to read from the script that the doctor had given her.
+With money in her hands now, Tara made her way to the apothecary's shop to purchase the medicine that the doctor insisted that her father needed. When she finally made her way inside the shop, the old man sitting at the counter creaked up on his feet to read from the script that the doctor had given her.
 
 The apothecary read the list and shook his head. He looked up at her with a puzzled look, "These can't be for you? You're the very image of health, as far as I can see."
 
@@ -1044,13 +1044,126 @@ The odl man shook his head again, "No, no nothing wrong. I'm just surprised that
 
 "Well, if I may put this delicately, surpsrised that you are not more upset right now."
 
-"I'm upset that my father is sick. I've had to work hard to securefunds for the medicine and future visits from the doctor."
+"I'm upset that my father is sick. I've had to work hard to secure funds for the medicine and future visits from the doctor."
 
-"Yes, perhaps so, but I'm afraid based on these medicines that your father is beyind being sick."
+"Yes, perhaps so, but I'm afraid based on these medicine that your father is beyind being sick."
 
 "I don't understand."
 
 "Unless I am missing some vital piece of information, your father is dying, young woman."
 
-Tara took a step back, feeling like her breath had been taken from her. "Dying? You must be mistaken, the doctor said nothing..." But she could see in the old man's sad eyes that he was speaking the truth and that the doctor had not lied, per se, but had told the truth in such a way that bad parts were harder to get a hold of and handle.
+Tara took a step back, feeling like her breath had been taken from her. "Dying? You must be mistaken. The doctor said nothing..." But she could see in the old man's sad eyes that he was speaking the truth and that the doctor had not lied, to her, but had told the truth in such a way that bad parts were harder to get a hold of and handle. "Won't these medicine make him better?"
 
+The apothocary looked at the script again, "I'm afraid not, these are just to provide comfort and nothing more. Do you still want me to fill them?"
+
+Tara nodded her head and waited while the apothecary prepared the medicine. He passed them to her wrapped in brown paper. She held out her coins to pay and the old man refused to take them. "Hold on to your money this time. If you see me again, we can discuss payment."
+
+***
+
+Tara opened to the door to the cell she shared with her father and crept inside. A curtain separated the front room from the back room where her father slept. She pulled the curtain aside to peek in and saw that her father was asleep already. He spent much of this time this way, or sitting in the front room in a ragged chair by the coal stove that eeked out what little heat it was capable of producing. She unwrapped the medicine and measured out the dosage. It took several tries to stir her father from sleep. She helped prop him up in his weary state and coaxed the bitter smelling medicine down him. After making him more comfortable, she went back into the front room to tidy up. 
+
+The room was cold and she didn't feel tired so she added another lump of coal to the stove. They only had a small pile in the bucket to see them through the next week until their allotment was refilled. She made a weak cup of tea from the tepid water that was still sitting in the kettle and resused the tea that her father had used earlier in the day. 
+
+She sat in another, smaller hard wooden chair near her father's worn down one and lit a candle. They had consolidated their belonging down to one trunk, having sold off most of their possessions over the last few years. Kettles and blankets and candles and other necessities didn't just appear out of no where. In fact Tara's first words upon entering the cell for the first time ahd been, "It's empty!? Where is everything?"
+
+The warden had turned to her and smiled a ghastly smile, "You scrounge and scour young lady. Everything is scrounging and scouring." So she had adapted to the scrounging and scouring, also the reusing and repurposing. She realized early on that her father would not be able to adapt to these new circumstances so she took it upon herself to be the one that ensured their survival. 
+
+She managed to hold on to a few of their posessions, and as much clothing as she possibly could. She learned early on that her sewing skills were barely adequate to keep their clothing mending, but not much else. It was too costly to pay another prison resident to do this for them. So, the lone trunk still had a few articles of clothing, but also the few books she held on to. The writing materials had long since disappeared.
+
+These books had been comforting companions these last few years, but like any company she sometimes could only wearlily accept that they retold the same tales. She had tried to see if any other prison residents would swap books. There was only one other resident with a few books, an old scholar, but his books were in another language and largely dealt with philosophical questions that didn't interest Tara.
+
+She only allowed herself a small bit of candle each night for reading. She even went so far as the mark up the candles with a knife to keep track. Once her segement was over, she was done reading for the night. This night was no different. She read for her alloted amount of light for the night then prepared her cot for sleep.
+
+***
+
+In the morning, a stacatto knock on the door alerted Tara to the fact that Helen was wanted her for some reason or another. She was getting her father situated in his chair, making his tea and preparing his breakfast. Fortunatley, her father had always eaten simple, small meals. So he was able to subsist on porridge, thin stews, and whatever else Tara could conjure up for them.
+
+"Someone knocking, Tara." Her father said. "Aren't you going to answer it?"
+
+"Yes, father, just a moment. Here is your tea," she said, placing the chipped cup on the wobbling table near him. The knocking continued.
+
+"Please Tara, the knocking is agitating my nerves."
+
+"It's only Helen, father." Her father frowned. He had expressed on many occassions that he did not think Helen was an appropriate acquaintance for Tara. She tried to explain in as gentle of a way that she could that their circumstances were different and that they were no better than someone like Helen now. But her father did not like hearing this and every time Helen's name was mentioned he reacted as if their respectability was being eroded a little bit more each time. Tara knew now that what little respectablity they had had been blasted away when they were seized by the king's guard at the palace and escorted out.
+
+Tara did not want to agigate her father further, so she wiped her hands on her apron and wiped her hair back form her face. Her father liked the room to be warm and rushing about performing her duties always brought a hot flush to her face. She made for the door and opened it ajar. As expected, there was Helen's bright eyes and crooked smile looking back at her. 
+
+Helen stood on her tiptoes and made to wave at Tara's father. He did not take any notice of her. Tara waved her hands down and stepped outside and closed the door. "Are you trying to make life complicated for me?"
+
+"I was just being friendly, dear friend." Tara frowned, "Don't be cross with me."
+
+"I'm not cross; I'm just tired." Tara weighed whether or not to tell Helen about her father but decided to keep that to herself for now. She didn't want news spreading through the prison that her father was gravely ill. It seeemed like every resident had some ailment, whether real or imagined. Many would discourse on these ailments for as long as the listener was willing to listen.
+
+"Did you get the medicine for your father?" Helen asked.
+
+Tara answered evasively, "Yes. I was able to."
+
+"Thanks to Helen, of course. Always looking out for me and mine."
+
+"That's true." Tara smiled, but wondered why Helen had appeared so early at her door.
+
+"I learned a piece of news that you might be interested in."
+
+"What's that?"
+
+"A new guest will be staying with us in the old home."
+
+"And from what I gather he might be an acquaintence of your fathers."
+
+Tara didn't think of her father having any acquaintances and couldn't think who it might be. She tried to summon a catalog of names and faces, but nothing appeared in the ledger. She stuttered out, "I don't understand. I don't know who it could be."
+
+Helen leaned in closer to speak in a conspiratorial tone, "Well, I know. I know more about you than you might think."
+
+"Like what?"
+
+"Well like your father was a recorder that he was arrested for treason."
+
+Tara had never shared these details with anyone and didn't know how Helen knew this. She had decided that the fewer details she shared with people the better.
+
+"How do you know this?"
+
+"Word gets around. Don't worry, I don't think any less of you."
+
+"But people know."
+
+Helen looked a little guitly as she replied, "Well some people."
+
+Tara shook her head, "It doesn't matter now. But why are you telling me?" New arrivals at the prison always sparked curiostiry and interest, not to mention raised the possibilty of bartering for new things. It was probably also the case that the long term inmates sensed an opportunity to take advantage of new occupants and their inexperience with the intricacies of living in the prison.
+
+Helen shrugged, "Dunno. Thought the connection might mean a little extra at the trade."
+
+"And a finder's fee?"
+
+Helen feigned outrage and slapped at Tara's arm, "You nasty thing. Don't be unfair."
+
+Tara smiled back and replied, "That's fine. I need to get back to my father."
+
+"If you do call on the new resident, be sure to tell me all of the details," Helen said.
+
+"I will," Tara replied, knowing that she would keep some details to herself should the visit happen.
+
+# Chapter 7 #
+
+Her father refused to call on the new resident at first. He didn't even want to talk to her about it and claimed that his headache had gotten much worse as a result. He retreated into the dim light of his back room, leaving her alone. An hour later he reemrged and asked for his hat and cane.
+
+The new resident was situated in the opposite side of the prison on one of the upper levels. They had to cross the yard and ascend several flights of stairs. Her father moved very slowly now. Tara had to patiently walk alongside her father as he made deliberate step after deliberate step.
+
+A few of the prisoners in the yard tipped their heads to Tara and her father, but most ignored them. A crowd of children were playing whack the rat, but froze in their tracks when the rat ran in front of Tara and her father. Tara had always assumed that the reticence, even fear, that people in the prison expressed towards them had to do with the fact that they seemed to give airs and maybe had powerful conenctions.
+
+She realized now that it was likely due to the rumors about her father being a recorder. Maybe these people worried that her father held some memory of them, or could see through them. She had heard people say these things about recorders and vigilants in the abstract, but had never connected these superstitions to her father.
+
+At this moment, Tara knew that all of her father's concentration was aimed at their walk, keeping himself upright and moving forward. Besides with the terrible headaches he complained of more and more regularly he could rarely think clearly or recall much of anything, must less obscure scenes of faces from the prison yard. But Tara learned more and more how fear of things seen and unseen, real and imagined, movtivated so much of what happened in the world. How whispered stories could animate people to act in ways they never would have without the stories. 
+
+They finally reached the new resident's door. Tara knocked for her father, knocked several times, before a gruff voice yelled out, "Go away, I've got nothing to barter."
+
+"We're not here to barter," Tara replied meekly.
+
+"Well go away. Leave me alone."
+
+Tara's father looked up at hearing the voice and called out, "Schiller is that you?"
+
+Silence from the cell and then the voice sounded nearer, "Arch is that you?"
+
+"Yes, it is."
+
+The cell door opened and Tara saw a wizened old man, older than her father, with bleary eyes and long beard standing before them. He was equally as frail looking as her father and seemed to quiver as the cold winter air blew across him. The man looked almost conspiratorial and waved them in to his cell, "Come in, quickly, come in."
