@@ -960,7 +960,7 @@ Tara didn't know how to respond. He was asking the question so matter of factly 
 
 "The term?"
 
-"Life. He's five years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close as both a talimen, but also a mark of shame. She had been told early on to only use it if absolutely needed. 
+"Life. He's two years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close as both a talimen, but also a mark of shame. She had been told early on to only use it if absolutely needed. 
 
 The man took the letter from her and lowered his glasses perched on his head to read it. "Well this all sounds very official."
 
@@ -1167,3 +1167,99 @@ Silence from the cell and then the voice sounded nearer, "Arch is that you?"
 "Yes, it is."
 
 The cell door opened and Tara saw a wizened old man, older than her father, with bleary eyes and long beard standing before them. He was equally as frail looking as her father and seemed to quiver as the cold winter air blew across him. The man looked almost conspiratorial and waved them in to his cell, "Come in, quickly, come in."
+
+They both entered the cell, smaller than their own, being only one room, but made from the same roughly hewn stone. The floor was worn smooth from previous occupants' pacing. The room only had a bed and one chair. Tara noticed a small traveling case by the bed, but no other personal items.
+
+With the door shut behind them, the old man, Schiller, motioned them to sit on the bed, while he perched on the edge of the chair. Even though he was older than her father, the man seemed to burst with nervous energy. He ran his hand constantly through his beard. He picked at this finger nails and nervously ran his hands up and down the front of his shirt. "I heard a rumor that you had been imprisoned."
+
+"Yes," her father replied, "Nearly two years ago. What are the odd we end up in teh same place."
+
+The old man scoffed, "Well the prisons are filling up and I never considered the current regime to be overly concerned with the particulars of things."
+
+Her father sighed, "Yes, I suppose it's just dumb luck then."
+
+"Certainly dumb, questionable luck."
+
+As if remembering that she was there, her father turned to Tara and introduced her. "This is my daughter, Tara."
+
+"I decduced as much. How do you do?" the old man asked absently, not keenly listening for her reply.
+
+Nevertheless she politely respodned, "I am well, thank you."
+
+He turned to her father again, "So, nearly two years on and you're still here."
+
+"No one has told me otherwise. But I am more eager to know why you are here."
+
+"I ran afoul of the Inspector General and my protests to the king went unheard."
+
+"Inpector General?"
+
+"Yes, he oversees the recorders adn vigilants now. Makes the final determination about the archive."
+
+"The recorders no longer decide?"
+
+"No, been that way for a while now. Perhaps not long after your disapperance."
+
+"I see," her father replied.
+
+Tara was puzzled by this discussion so interjected into it, "I don't understand. Why would this Inspector General be a problem?"
+
+The old man said, "The recorders were never intended to work that way. Each recorder reviewed the record, decided upon its final contents, and verified it. This was meant to ensure greater accuracy and veracity."
+
+"Veracity, how?"
+
+"Because conflicting versions of events would be allowed in the official record. If two recorders saw similar events from a different perspective then it would be allow to stand. And that law was iviolable for generations until now."
+
+"So the Inpsector General is the one who decides now?" she asked.
+
+"Or whomever he reports to or whomever that person reports to."
+
+"Ultimatley the king," her father chimed in. "The king is the one who decides now."
+
+Mr. Schiller scoffed at this comment, "More likely than not his advisor. The king hardly does anythign without the input of his advisor."
+
+"We know him well," her father replied. He refocused on Mr. Schiller, "Do you know if you have been replaced?"
+
+"I am uncertain, though I doubt it. They have been consolidating regions, whittling down the number of recorders."
+
+"How many are there?" Tara asked. She had always heard that there might be other recorders across the kingdom, but her father never volunteered any information abou them. It was interesting to her to speak direclty with someone who knew her father's world but was more forthcoming about it.
+
+"We never really knew," Schiller responded. "Likely five or six. But who can say?"
+
+As Tara thought more about what this consolidation might mean, her thoughts led her Avalon. She thought about Avalon from time to time, but always in relationship to herself. She missed Avalon, missed having her in her household, considering her a part of her life. She had not thought about Avalon's role as vigilant and what had happened to that role after her and her father's imprisonment.
+
+Tara looked over at her father who seemed to understand the thoughts reeling through her mind. He shrugged and said, "I do not know."
+
+"Know what?" Schiller asked.
+
+"About my vigilant. What happened to her as a result of my...situation?"
+
+<!-- need to fact check this next assertion against earlier scenes -->
+Even after two years, her father refused to call his imprisonment anything besides his "situtation," assuming he referred to it at all. 
+
+Schiller shruggedl and said, "I never heard anything. Who knows. Vigilants have such short lives as it is."
+
+Tara cried out, "Oh Avalon. I hope she's okay?"
+
+Schiller seemed puzzled, "Avalon?" He paused then added, "You gave your vigilant a name?"
+
+Tara looked at her father again who became very uncomfortable. He looked down and spoke softly, "Tara became so attached to her. I didn't see the harm at the time."
+
+"Harm? No harm in up ending the order of things? What harm might there be in that?"
+
+Tara lashed out in response, "What good has the order of things done us. Look at where we are now."
+
+"Well young lady, perhaps there is a connection between the two. Have you considered that?"
+
+Her father let out a plantive moan, clutched his head, and started swaying back and forth. "Oh father. He has become so senstiive to least agigtation."
+
+Schiller set on the bed next to him, "Is it the headaches?" Her father nodded, "I've lived with the headaches so long I don't recall a time before them."
+
+Tara added, "They are much worse, much worse now."
+
+The old man looked at her with a look of grave concern. "Have he seen a doctor?"
+
+Tara wanted to resist this line of questioning so merely said, "Yes very recently."
+
+"I see," was Schiller's blunt reply.
+
