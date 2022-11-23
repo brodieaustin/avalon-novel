@@ -950,7 +950,7 @@ Tara could feel the man's eyes searching over her, looking for signs of inconsit
 
 "Yes, sir. I'm a hard worker. I'll do a good job." She tried to keep the desperation out of her voice and speak matter of factly. She had learned the lesson many times over that maintaining appearances mattered greatly.
 
-He leaned back in his chair. He looked at her again and a shrewed look came into his eyes, "I suppose you're from the prison, aren't you? Seems like everyone here is one way or another. Or if they weren't they were at some point." He paused, "Well?"
+The man, who had introduced himself as Mr. Mercer, leaned back in his chair. He looked at her again and a shrewed look came into his eyes, "I suppose you're from the prison, aren't you? Seems like everyone here is one way or another. Or if they weren't they were at some point." He paused, "Well?"
 
 Tara didn't know how to respond. He was asking the question so matter of factly that she decided it was best to be truthful, "Yes, sir."
 
@@ -960,7 +960,7 @@ Tara didn't know how to respond. He was asking the question so matter of factly 
 
 "The term?"
 
-"Life. He's two years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close as both a talimen, but also a mark of shame. She had been told early on to only use it if absolutely needed. 
+"Life. He's two years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close with her at all time, having heard stories that it could extricate her from difficult situations, but she kept it out of sight and carried it about like a mark of shame too. She had been told early on to only use it if absolutely needed. 
 
 The man took the letter from her and lowered his glasses perched on his head to read it. "Well this all sounds very official."
 
@@ -970,7 +970,7 @@ The man took the letter from her and lowered his glasses perched on his head to 
 
 "My father. He's taken ill and needs medicine and doctors. The prison will only do so much. So I was hoping to..."
 
-The man cut her off, "To trick me into thinking you were a respectable house maid who take her earnings to extend the life of an incarcerated criminal?" Tara's face must have expressed a mixture of rage and terror at the same time. The man interjected, "There's no need for that look. I'm a man of the world, a simple man, but a man of the world. I've seen much of how the world works, the parts it wants you to see and the parts it doesn't. If you're punctual and do your duty, you may have the job and use the earnings for whatever you wish. I suppose you can read. You speak like someone who can read."
+The man cut her off, "To trick me into thinking you were a respectable house maid so that you could take your earnings to extend the life of an incarcerated criminal?" Tara's face must have expressed a mixture of rage and terror at the same time. The man interjected, "There's no need for that look. I'm a man of the world, a simple man, but a man of the world. I've seen much of how the world works, the parts it wants you to see and the parts it doesn't. If you're punctual and do your duty, you may have the job and use the earnings for whatever you wish. I suppose you can read. You speak like someone who can read."
 
 Again, she hesitated to be too forthcoming, having learned early on that it was better to conceal any refinement, education. After their time in the prison, it hadn't been too hard. Much of the sheen of her past life had been rubbed away by worry and toil. "I can read." She paused then ventured, "And write as well." 
 
@@ -1255,11 +1255,71 @@ Her father let out a plantive moan, clutched his head, and started swaying back 
 
 Schiller set on the bed next to him, "Is it the headaches?" Her father nodded, "I've lived with the headaches so long I don't recall a time before them."
 
-Tara added, "They are much worse, much worse now."
+Tara added, "They are much, much worse now."
 
-The old man looked at her with a look of grave concern. "Have he seen a doctor?"
+The old man looked at her with a look of grave concern. "Has he seen a doctor?"
 
 Tara wanted to resist this line of questioning so merely said, "Yes very recently."
 
 "I see," was Schiller's blunt reply.
+
+The onset of her father's headache brought their visit to a quick end. Tara led him back to the cell and made him as comfortable as she could while she prepared his medicine. Just as the apothocary said, the medicine seemed to tame the headache and make her father comfortable enough to sleep.
+
+Tara spent the rest of the day finishing chores, reading, and preparing for her first day of work in the morning. All the while she thought about Avalon and where she might be. She had trouble imagining her anywhere but at the old cottage, a place that Tara had tried to blot out from memory as much as she could. It was too painful to recall the trimmed gardens, the wild forest. The worn homey feel of the bannister, the look of light shining across the floors. 
+
+She knew so little of the world that she could only imagine Avalon in that home, a place where it seemed she wasn't even supposed to have been, with a name she wasn't supposed to have had. Did she have another name, Tara wondered? Or had they somehow come to know her name and once it was known, it could not be unknown. 
+
+The fire had nearly burned down. Tara stoked it one more time, but there was little heat left to give. She smothered the fire and closed the grate to avoid letting in cold air. She wrapped herself up in a threadworn blanket and wondered if she would ever see Avalon again.
+
+###
+
+Tara left the prison as soon as the gates opened in the morning. Winter was setting in and a cold wind blew across the lake that separated the prison from the town. She tried to stay huddled in her shawl to keep in what warmth she could as she crossed the long causeway. She finally reached the gate house at the end of the causeway, nodded to the morning guard, and walked the rest of the way into town.
+
+Just as he had said, Mr. Mercer was waiting to let her in and leave for his daily business. She set to work cleaning the rooms of his apartment, scooping up old ash, scrubbing the cast iron grates. She dusted and mopped and wiped and arranged until it was time to leave.
+
+The man seemed satisfied with her work after the first week and promptly paid her, minus the advance of course. He was never paritclarly friendly or particularly rude to her, especially at the end of the day when he would nod over the state of his quarters and say good night to her. In fact, he often seemed preoccupied, in another place altogether when he returned at the end of the day. Tara wondered what the man did as his occupation. He never mentioned anything about it to her.
+
+At the end of the first month workign for him, Tara used a bit of the payment to buy herself a hot cup of tea in one of the tea shops in the working district of the town. The tea wasn't particularly strong and the food of middling quality, but when she could, she enjoyed sitting at the window and watching people in the streets pass by. 
+
+Tara held her hands over the steaming tea, looking out of the windows that were steaming up from the people in close quarters. She started to sip from the chipped up cup when she saw Mr. Mercer pass in front of the tea shop. She watched him, more out of curiousity than anything. In their brief meetings, he said nothing about what he filled his days doing. Whatever he did, though, he was punctual about it and seemed to take it very seriously. So in the spirit of idle curiosity, as she sipped and enjoyed her tea, in this brief moment of indulgence amidst everything, she trained her eyes on him to see where he was going. 
+
+With his back to her, he crossed the street, disappearing behind a wagon laden with hay then reappearing on the opposite side of the street. He stopped and stood in place for several minutes before he started to look around furtively. He entered the building where he waited and disappeared in dark doorway.
+
+Tara's eyes wandered up the side of the building along the zigzag of window frames. Most of the windows were covered in curtains or too dirty to see through. She noticed one where the curtain was parted by just a sliver. In that sliver she could just make out the sharp edge of a woman's face. The face, even from this distance, seemed strangely familiar. 
+
+The woman in the window looked around the street, then the curtain closed. Tara wondered if she was imagining what she just saw. How was it possible? She had been under such strain with her father's worsening condition and the odd jobs she did to try to have enough money to keep him comfortable. Perhaps she was tired. Maybe something she ate had spoiled and was giving her visions.
+
+She looked up again and noticed that the curtains had parted again. Only this time the face was Mr. Mercer. He looked down each side of the street and then looked down at her. Tara wasn't sure, but she felt like he was making eye contact with her. The curtain closed again. 
+
+Tara hurried to finish her tea and set back to the prison before it got much later. Walking down the narrow dusty roads then back to the prison, she wondered how it was that she just saw Avalon's face in a window being called on by Mr. Mercer.
+
+###
+
+Mr. Mercer's attitude towards did not change at all the next time she saw him. She even worried that she might be fired. Nothing in his movements, his eyes, his voice betrayed any recollection of what had happened a few days past. He opened his apartment for her and disappeared to go about his business.
+
+Before he could get too far, Tara rushed back down stairs. A boy was loafing on the opposite side of the street. She waved him over and asked him, "Can you do something for me for a coin?"
+
+The boy looked at her shrewdly, like a merchant weighing the opportunity. "What kind of job?"
+
+"Do you see that man making his way down the street?"
+
+"Yeah, sure."
+
+"I want you to follow him and tell me where he goes. I'll be back here in two days time and you can tell me everything you see. Do you agree?"
+
+"I'll need more payment for a full report and advance in case I get parched and need refreshment."
+
+Mr. Mercer was about to disappear in the distance so Tara agreed and handed over one coin to the boy. He raced off down the street. He managed to catch up with him remarkably fast then the two disappeared into crowd altogether.
+
+When the time came for the report, Tara was disappointed to learn that Mr. Mercer's daily activities were not very interested. The boy told her that this had not been as nearly as exciting of a task as he had hoped. "I mostly stood about all day waiting for him to come and go," the boy explained.
+
+"What about the tea shop, the one in the working district, do you know it?"
+
+The boy searched his memory, "I think so."
+
+"Did he stop anywhere in that area."
+
+Again more searching, "No, not that I recall. He mostly went in and out the exhange, counting houses, and the like. Boring business if I made a guess. What's it matter to you anyways?"
+
+Tara gave him a stern look, "That is my concern. You have done the job as assigned, so here is your final payment."
 
