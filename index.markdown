@@ -4,6 +4,59 @@ layout: base
 
 <!-- need to make it clear throughout the there is a newish king -->
 
+<!-- # Backstory #
+
+To have asked how long the vigilants had been in the world, would have been like asking how long there had been mountains and streams and tress. For as long as anyone could remember, there had been vigilants.
+
+The number changed from telling to telling, and over the many many years the numbers had changed due to disease and wars, those two blades that seemed to sharpen to a fine point over and over again to cut through life. Four. Five, sometimes six.
+
+No one knew exactly where they came from, but there were stories. Some stories held that when the veil between this world and some other world was thin and permeable. The idea of such a veil and such a passing seemed plausable enough to most people. The belief in such things had been stronger in days long passed. It used to be the case that little accidents or little unexplained occurences would be attributed to the fact that nothing was truly permanent in this world and that beings could pass back and forth. Whether these beings were in the world for good or ill depended up on the story and the teller. 
+
+But some reason the vigilants had stayed and gave their most unique possession to this world as a gift--the cloaks with eyes that could see all and remember all.
+
+Perhaps the most widly repeated and most commonly believed origin story went something like this. In some obscure corner of the world, there was minor landholder whose inheritance was nothing much more than a crumbling manor house and arid lands. But this landholder was ambitious and ruthless. He also had a knack for raising large armies to supply the king. These armies were not just fodder for the battlefield. He somehow imbued his armies with the same ruthlessness that he posessed. They brough death and desctrution to any enemy they met on the battlefield. Because of his and his solders' prowess, this landholder became a lord, then held a seat on the king's council, which meant moving to the court and insinutating himself into palace life. 
+
+It was at the palace that he made an unlikely alliance. At the time fortune tellers, seers, soothsayers, and the like were in great demand. All around the capital there seemed to be shops and stalls where one could have their futures or pasts divined. 
+
+The lord, as it turned out, enjoyed visiting these prognosticators. In particular, he found one who seemed to be in touch with very powerful forces and could read the stirrings of the Lord's heart with surprising accuracy. The lord invited this seer into his household and cultivated him as a kind of advisor. He brought him with him on campaigns and consulted him about his prospect on the battlefield.
+
+With the seers help, it seemed that the lord was invincible and his stature grew even greater in the kingdom. In fact, the king came to look on him as a kind of adopted son. Since the king had no heir, it was widely assumed that the lord would assume the throne when the king passed on from this world. An obscure branch of the royal family learned of these whispered plans and moved to seize power for themselves. 
+
+Ten years of costly wars ensued, but with the lord leading the king's armies, they had managed to route the family's forces. That is until one battle. The lord felt that the conditions were not right for a battle, they found themselves downhill from the enemy forces, separated by a lazy creek. A dense morning fog had rolled in and obscurbed everything a few few away. The lord's forces were arranged for battle. Horses stamped at the ground; arches knocked their first array and kept their bow string at the ready.
+
+They did not move without the lord's command. The enemy merely waited in its superior position. The lord consulted with the seer to determine whether or not the time was propitious for a battle. The seer consulted cards and bones and meditated on the question. Each time the answer came back as a resounding yes. Victory was guaranteed if the lord moved swiftly. 
+
+The time, as it turned out, was not propitious for the lord. The king's family routed the king's forces, breaking the back of his most powerful host. The losses were staggering. The lord's men, men he had led into battle for years now, lay mangled on the battlefield with hideous wounds. Fires had been set which mingled with the fog causing men and animals to suffocate in the smoke. Everywhere the lord looked were reminders of how crushign this defeat had been.
+
+He returned to the camp and ordered two men to seize the seer. They rode with unimaginable haste back to the king and the court. Word had reached the king that his forces had been defeated in a great battle. The lord sought an audience with the king. At first he was denied. The king's advisors urged him to arrest the lord and execute him. The king was old now and tired of the particulars of running a kingdom, but he enjoyed his comfort and ease and did not relish relinquishing the throne. He reluctantly agreed to see the lord who insisted he had a plan to avoid such defeats in the future. The king listened to the plan and agreed to it.
+
+The king issued a proclomation and the lord set to work immediately. Throughout the kingdom, all of the seers and prophers and fortunte tellers were rounded by the king's soldiers, including the lord's favored seer. They were brought to the palace. The lord assembled them together and told them about his proposed plan. He demanded to know if anyone could make this happen. One seer, a young woman raised her hand and said that she could.
+
+The other seers in the room tried to turn on her immedidately, terrified by what was about to happen to them. The soldiers stopped them and jailed each one. After this, one by one, the lord saw to it that each seer's eyes were removed. They were collected and given to the woman who had volunteered to perform the the task She was given cloaks and stitched the seers' eyes to the cloaks--maybe give, maybe six in total.
+
+At first the king and his retinue recoiled in horror when the young woman entered the king's hall wearing the first cloak she had constructed. The eyes all moved about wildly, out of control, as if bewildered by their current situation. All of the eyes of the seers who had looked the past, present and future, were trained to one goal, to record and observe so that the lord would never be surprised again.
+
+How she would accomplish such a task was never fully explained, but it was generally understood that people in past times were capable of things that were not possible now. Some whispered that such things were not allowed and that the king had forbade such arts to be practiced. One thing that did remain constant though, was that only women were allowed to wear the cloaks, partly as a remembereance of the yougn woman who had constructed the cloak but also as a mark against the man who the lord felt had betrayed him.
+
+[is this resuable?]
+While surveying the damage, the lord noticed a figure standing on the horizon line, looking over the battlefield. He asked several of his lieutenants who that was. They did not know. It took a nearby footsoldier overhearing to say, "My lord, there were rumors running everywhere about one of them vigilants passing through the battle. I swear I seen her standing right near me as I was strangling an enemy to his death."
+
+The figure continued to stand on one place, watching over them, the wind whisking the edges of the mystical cloak around the immoveable form. The lord turned to his lieutenants and said, "Bring my that vigilant."
+
+Later that evening when the host was encamped and engulfed in the sounds of crackinling fires, singing, and clanking glasses, the lord was resting in his own tent consulting with his seer when he heard a commotion run through the camp. He roused himself up to see what was happening. Solders were running from something. Yet there was no shouts from the guard, no alarms being raised. 
+
+The seer stood beside him at the tent's entrance. The lord looked to him and said, "What is the meaning of this?"
+
+The seer is said to have replied, "The vigilant approaches."
+
+This phrase came to be commonly used when, in fact, a vigilant approahced. The way people said it tended to have a tone of dire warning, foreboding, anxiety. Much like the solders fleeing the camp, it has long been customary to want to avoid the glare of the vigialtn's eyes, to not be captured by one of those roaming eyes. It was also said that staring into one of the eyes could lead you to madness. Or so the stories went.
+
+The lord tried to step into the breach and stop his men from leaving, but it did little good. They were resolved to flee and he was resolved not to flee. The vigialng finally came into view, escorted by two solders who seemed to have almost reached the limit of their sanity. As soon as the vigilant stopped before the lord and seer, the soldiers broke ranks and ran as well.
+
+The story paints a very vivid picture of the vigilant standing before the lord and seer in the dim light of the camp fires, saying nothing, merely staring at the lord, while the eyes on the cloak roamed in all directions looking for something to train their gaze on and watch.
+
+The lord is said to have stepped forward and began a formal speech, praising the vigilant, explaining how he could make use of her talents. Whether or not the lord gave such a speech is difficult to say for sure, but it so it was recorded and so it has been shared, told and retold. -->
+
 # Chapter 1 #
 
 "Avalon!" Tara called out from her threshold between her bedroom and the upstairs hall. "Avalon!" But the footsteps that grew louder up the stairs were not Avalon's at all. They lacked the purposeful, elegeant glide that Avalon's unmistakable footsteps had. These footsteps were purposeful, for sure, but each thud announced a walker stepping with forced purpose, almost willing each step to land, one after the other.
@@ -1002,7 +1055,7 @@ Tara drew back her hand, but the woman cried out, "I deserve a finder's fee. See
 
 "I suppose."
 
-The woman studied herself in plate of glass they were passing by, "Yes, old Helen is just rag and bones already in my young age. You're still a proper city lady, ain't you"
+The woman studied herself in plate of glass they were passing by, "Yes, old Maggie is just rag and bones already in my young age. You're still a proper city lady, ain't you"
 
 "I'm not from the city, you know that."
 
@@ -1010,23 +1063,23 @@ The woman studied herself in plate of glass they were passing by, "Yes, old Hele
 
 "Maybe." 
 
-"Be dear and give old Helen a finder's fee." Helen held our her hand and made a face like a child pleading for a treat. Tara felt amused by the caper and handed the small coin over. Helen snatched the coin before it was taken away, kissed Tara on the cheek and said, "I'll see you back at the home."
+"Be dear and give old Maggie a finder's fee." Maggie held our her hand and made a face like a child pleading for a treat. Tara felt amused by the caper and handed the small coin over. Maggie snatched the coin before it was taken away, kissed Tara on the cheek and said, "I'll see you back at the home."
 
-Helen, usually a spendthrift with any extra coin she came into contact with, skipped off to spend this particular coin somewhere. Tara had met Helen not long after her relocation to the prison with her father, which Helen liked to called their home. She had not liked Helen at first, who teased her endlessly about her fine clothes and fine wares that she brough with with her.
+Maggie, usually a spendthrift with any extra coin she came into contact with, skipped off to spend this particular coin somewhere. Tara had met Maggie not long after her relocation to the prison with her father, which Maggie liked to called their home. She had not liked Maggie at first, who teased her endlessly about her fine clothes and fine wares that she brough with with her.
 
-"You packed for a holiday?" Helen had said the first time she came into the two room cell that Tara shared with her father. She had not invited Helen into their rooms, but the woman somehow insinutated herself inside without Tara realizing it. This, Tara came to realize, was Helen's way. Helen had a genius for getting things she wanted with the least amount of effort possible. 
+"You packed for a holiday?" Maggie had said the first time she came into the two room cell that Tara shared with her father. She had not invited Maggie into their rooms, but the woman somehow insinutated herself inside without Tara realizing it. This, Tara came to realize, was Maggie's way. Maggie had a genius for getting things she wanted with the least amount of effort possible. 
 
-After a few months, the over teasing gave way to a genial ribbing, and a ready reminder that, while Tara might consider herself of higher status, she was in the same situation as everyone else at the prison, with few prosepects of getting out or moving beyond it. Helen, as Tara learned, had lived in the prison since she was nine or ten, having moved there when her mother was imprisoned. "After my dear old dad died, we learned he had left considerable debts on account of another life he lived in a nearby town. My mom had to take on his debts, then was jailed when she couldn't repay."
+After a few months, the over teasing gave way to a genial ribbing, and a ready reminder that, while Tara might consider herself of higher status, she was in the same situation as everyone else at the prison, with few prosepects of getting out or moving beyond it. Maggie, as Tara learned, had lived in the prison since she was nine or ten, having moved there when her mother was imprisoned. "After my dear old dad died, we learned he had left considerable debts on account of another life he lived in a nearby town. My mom had to take on his debts, then was jailed when she couldn't repay."
 
-Helen had grown into womanhood along with a younger brother and sister in the prison and knew its ways and the ways of the town well. Tara was a reluctant student at first, and didn't venture into town until 6 months or so had elapsed. Helen chided her for staying copped up in her cell with her father or in the prison yard. "You're not the one serving the sentence, you know. You are allowed to leave. Go out, earn some coin. The warden don't mind a bit, it's less he has to provide for."
+Maggie had grown into womanhood along with a younger brother and sister in the prison and knew its ways and the ways of the town well. Tara was a reluctant student at first, and didn't venture into town until 6 months or so had elapsed. Maggie chided her for staying copped up in her cell with her father or in the prison yard. "You're not the one serving the sentence, you know. You are allowed to leave. Go out, earn some coin. The warden don't mind a bit, it's less he has to provide for."
 
 "They're not worried about the prisoners getting out?" Tara had asked, somewhat incredulous that the prison was so lax.
 
-In response, Helen had waved her arms around at the various cells. "Have you seen the broken up people in here? They were defeated the moment they sat foot in the prison walls, probably before that. These aren't scheming murders after all."
+In response, Maggie had waved her arms around at the various cells. "Have you seen the broken up people in here? They were defeated the moment they sat foot in the prison walls, probably before that. These aren't scheming murders after all."
 
-Helen finally convincend, or compelled, Tara to venture into town with her. The town itself was small, though busy. It existed at a crossroad on a trade route, though most of the town existed to maintain the prison. It was less rustic and quaint that the country town she had grown up near, but not nearly as built up and bustling as the capital.
+Maggie finally convincend, or compelled, Tara to venture into town with her. The town itself was small, though busy. It existed at a crossroad on a trade route, though most of the town existed to maintain the prison. It was less rustic and quaint that the country town she had grown up near, but not nearly as built up and bustling as the capital.
 
-At the time, Helen was wide eyed when Tara told her that she had visited the capital and even been inside the palace. She liked to hear Tara tell stories about the people and buildings, the fine clothes and the dashing soldiers. Over the last few years, Tara had repeated the stories countless times. Each time she tried to mine some new detail or fact from her memory to delight Helen. It is possible that Tara had exaggerated a few details or inserted a few imaginative alterations to her story. She she had done so in such a convincing manner that she could no longer see the seams where the true story had been stitched to the invented one.
+At the time, Maggie was wide eyed when Tara told her that she had visited the capital and even been inside the palace. She liked to hear Tara tell stories about the people and buildings, the fine clothes and the dashing soldiers. Over the last few years, Tara had repeated the stories countless times. Each time she tried to mine some new detail or fact from her memory to delight Maggie. It is possible that Tara had exaggerated a few details or inserted a few imaginative alterations to her story. She she had done so in such a convincing manner that she could no longer see the seams where the true story had been stitched to the invented one.
 
 With money in her hands now, Tara made her way to the apothecary's shop to purchase the medicine that the doctor insisted that her father needed. When she finally made her way inside the shop, the old man sitting at the counter creaked up on his feet to read from the script that the doctor had given her.
 
@@ -1076,7 +1129,7 @@ She only allowed herself a small bit of candle each night for reading. She even 
 
 ***
 
-In the morning, a stacatto knock on the door alerted Tara to the fact that Helen was wanted her for some reason or another. She was getting her father situated in his chair, making his tea and preparing his breakfast. Fortunatley, her father had always eaten simple, small meals. So he was able to subsist on porridge, thin stews, and whatever else Tara could conjure up for them.
+In the morning, a stacatto knock on the door alerted Tara to the fact that Maggie was wanted her for some reason or another. She was getting her father situated in his chair, making his tea and preparing his breakfast. Fortunatley, her father had always eaten simple, small meals. So he was able to subsist on porridge, thin stews, and whatever else Tara could conjure up for them.
 
 "Someone knocking, Tara." Her father said. "Aren't you going to answer it?"
 
@@ -1084,23 +1137,23 @@ In the morning, a stacatto knock on the door alerted Tara to the fact that Helen
 
 "Please Tara, the knocking is agitating my nerves."
 
-"It's only Helen, father." Her father frowned. He had expressed on many occassions that he did not think Helen was an appropriate acquaintance for Tara. She tried to explain in as gentle of a way that she could that their circumstances were different and that they were no better than someone like Helen now. But her father did not like hearing this and every time Helen's name was mentioned he reacted as if their respectability was being eroded a little bit more each time. Tara knew now that what little respectablity they had had been blasted away when they were seized by the king's guard at the palace and escorted out.
+"It's only Maggie, father." Her father frowned. He had expressed on many occassions that he did not think Maggie was an appropriate acquaintance for Tara. She tried to explain in as gentle of a way that she could that their circumstances were different and that they were no better than someone like Maggie now. But her father did not like hearing this and every time Maggie's name was mentioned he reacted as if their respectability was being eroded a little bit more each time. Tara knew now that what little respectablity they had had been blasted away when they were seized by the king's guard at the palace and escorted out.
 
-Tara did not want to agigate her father further, so she wiped her hands on her apron and wiped her hair back form her face. Her father liked the room to be warm and rushing about performing her duties always brought a hot flush to her face. She made for the door and opened it ajar. As expected, there was Helen's bright eyes and crooked smile looking back at her. 
+Tara did not want to agigate her father further, so she wiped her hands on her apron and wiped her hair back form her face. Her father liked the room to be warm and rushing about performing her duties always brought a hot flush to her face. She made for the door and opened it ajar. As expected, there was Maggie's bright eyes and crooked smile looking back at her. 
 
-Helen stood on her tiptoes and made to wave at Tara's father. He did not take any notice of her. Tara waved her hands down and stepped outside and closed the door. "Are you trying to make life complicated for me?"
+Maggie stood on her tiptoes and made to wave at Tara's father. He did not take any notice of her. Tara waved her hands down and stepped outside and closed the door. "Are you trying to make life complicated for me?"
 
 "I was just being friendly, dear friend." Tara frowned, "Don't be cross with me."
 
-"I'm not cross; I'm just tired." Tara weighed whether or not to tell Helen about her father but decided to keep that to herself for now. She didn't want news spreading through the prison that her father was gravely ill. It seeemed like every resident had some ailment, whether real or imagined. Many would discourse on these ailments for as long as the listener was willing to listen.
+"I'm not cross; I'm just tired." Tara weighed whether or not to tell Maggie about her father but decided to keep that to herself for now. She didn't want news spreading through the prison that her father was gravely ill. It seeemed like every resident had some ailment, whether real or imagined. Many would discourse on these ailments for as long as the listener was willing to listen.
 
-"Did you get the medicine for your father?" Helen asked.
+"Did you get the medicine for your father?" Maggie asked.
 
 Tara answered evasively, "Yes. I was able to."
 
-"Thanks to Helen, of course. Always looking out for me and mine."
+"Thanks to Maggie, of course. Always looking out for me and mine."
 
-"That's true." Tara smiled, but wondered why Helen had appeared so early at her door.
+"That's true." Tara smiled, but wondered why Maggie had appeared so early at her door.
 
 "I learned a piece of news that you might be interested in."
 
@@ -1112,13 +1165,13 @@ Tara answered evasively, "Yes. I was able to."
 
 Tara didn't think of her father having any acquaintances and couldn't think who it might be. She tried to summon a catalog of names and faces, but nothing appeared in the ledger. She stuttered out, "I don't understand. I don't know who it could be."
 
-Helen leaned in closer to speak in a conspiratorial tone, "Well, I know. I know more about you than you might think."
+Maggie leaned in closer to speak in a conspiratorial tone, "Well, I know. I know more about you than you might think."
 
 "Like what?"
 
 "Well like your father was a recorder that he was arrested for treason."
 
-Tara had never shared these details with anyone and didn't know how Helen knew this. She had decided that the fewer details she shared with people the better.
+Tara had never shared these details with anyone and didn't know how Maggie knew this. She had decided that the fewer details she shared with people the better.
 
 "How do you know this?"
 
@@ -1126,19 +1179,19 @@ Tara had never shared these details with anyone and didn't know how Helen knew t
 
 "But people know."
 
-Helen looked a little guitly as she replied, "Well some people."
+Maggie looked a little guitly as she replied, "Well some people."
 
 Tara shook her head, "It doesn't matter now. But why are you telling me?" New arrivals at the prison always sparked curiostiry and interest, not to mention raised the possibilty of bartering for new things. It was probably also the case that the long term inmates sensed an opportunity to take advantage of new occupants and their inexperience with the intricacies of living in the prison.
 
-Helen shrugged, "Dunno. Thought the connection might mean a little extra at the trade."
+Maggie shrugged, "Dunno. Thought the connection might mean a little extra at the trade."
 
 "And a finder's fee?"
 
-Helen feigned outrage and slapped at Tara's arm, "You nasty thing. Don't be unfair."
+Maggie feigned outrage and slapped at Tara's arm, "You nasty thing. Don't be unfair."
 
 Tara smiled back and replied, "That's fine. I need to get back to my father."
 
-"If you do call on the new resident, be sure to tell me all of the details," Helen said.
+"If you do call on the new resident, be sure to tell me all of the details," Maggie said.
 
 "I will," Tara replied, knowing that she would keep some details to herself should the visit happen.
 
@@ -1321,5 +1374,77 @@ The boy searched his memory, "I think so."
 
 Again more searching, "No, not that I recall. He mostly went in and out the exhange, counting houses, and the like. Boring business if I made a guess. What's it matter to you anyways?"
 
-Tara gave him a stern look, "That is my concern. You have done the job as assigned, so here is your final payment."
+Tara gave him a stern look, "That is my concern. You have done that I asked, so here is your final payment." It pained her somewhat to hand over the coin to the boy, but the boy'd jaded eyes grew big and he swelled with excitement when he saw it. She couldn't deny it to him now. Before he ran off, she laid a hand on his shoulder, "Remember this is just a game we were playing."
+
+The boy looked at the hand then up and her, "I would hardly recognize you was anyone to ask." Then he ran off and disappeared down a alley.
+
+# Chapter 8 #
+
+<!-- tara's father dies; she decides to visit Avalon for herself;  -->
+
+Even though the boy's report had been disappointing and contained no revealing information, Tara could not let go of the idea that her employer had some unexpected connection to Avalon. Every idle moment became devoted to speculating what this connection might be. She ran through theory after theory, each one more outlandish than the next.
+
+She started following Mr. Mercer when she had the free time to do so. She learned how to keep her distance and stay discrete. She kept to the shadowy corners and thresholds of buildings. She slipping in and out from behind people in the crowd. No matter how diligent she was, though, she could not catch him going anywhere out of the ordinary, much less to the apartment that she assumed was Avalon's.
+
+Late one afternoon when Tara was in midst of her reconnaissance when she thought she heard her name in the street. She turned but did not see anyone. Then she heard it again followed by Maggie running up the street neary out of breath. 
+
+"Maggie?" Tara said, "What's wrong?" As soon as Maggie came to a standstill, Tara could see in her face that something had happened, that Maggie came bearing bad news. "No, it can't be?"
+
+"I've been looking all over to find you to tell you." Maggie looked around at the warehouses that surrounded them, "What are you doing here? It doesn't matter. You must come back now."
+
+"Is he?"
+
+Maggie shook her head, "No, not yet, but he's close. The warden is drawing up his documents now." 
+
+They both rushed back to the prison. A light rain made the bridge slick. Tara nearly fell twice in the rush and rustle of her dress. Maggie picked her up and they kept on across the water to the prison gates. The guard flung open the gate when he saw them approaching, even managed to give Tara a passing kindly look. She didn't have time to dwell on the changed posture and attitude of everyone around her. From the prison staff to the other residents, everyone seemed to be expressing the same temporary feeling of sympathy for her and her father. 
+
+She rushed into the cell only to find the Warden and the prison's contracted doctor were there. The warden was looking around the cell, seeminly making an inventory of their beloingings. The doctor was sitting in a chair writing a report. Tara could see a still figure shrouded in a blanket laying in bed. "No!" she cried out, rushing to her father. She fell on her knees by the bed and laid her head down, "No, papa. Papa, please come back."
+
+The doctor stood at the door, "I'm sorry. He had passed when I came in. There was nothing to do. He was very ill."
+
+"I wasn't here. If only I had been here."
+
+The doctor replied, "There was nothing you could have done."
+
+"But he was alone, all alone."
+
+"And so we all are the end," the doctor said.
+
+The warden called the doctor aside. They whispered over some matter while Tara sat back down in a chair next to her father bed. She wiped the tears from her eyes and said, "Poor, papa. I'm sorry I wasn't here."
+
+The doctor reappeared in the room and took the most tender tone imaginable, "Tara, I'm afraid that the warden needs to speak with you on a most delicate subject. I'm sorry it has to be this way, but it has to be this way."
+
+Tara nodded and stood up. She nearly collapsed back down in grief, but some inner resolve straightened her out and she entered the front room.
+
+The warden, who not a kind man, but particulary unkind either, set about explaining to her in a very distant tone that they would need to make arrangements to relocate Tara by the end of the day.
+
+Tara looked at them both blankly. The doctor interceded, "Prison rules do not allow families to stay past the expiration of their incarcerated family member. In my experience, there are no exceptions."
+
+The warden shook his head to emphasize that there were no exception, perhaps even with a hint of pride at the way the protocols had been so rigously maintained and enforced. "It's better for all if there is a clean break," the warden added.
+
+"Better? How?" Tara asked.
+
+"These situations can be very upsetting to the other inmates. They can lead to unrest and disorder. To say nothing of the fact that we don't resources to be a lodging house."
+
+The doctor stepped in again, "The good news is that your father's sentence did not extend to you. I've reviewed the order and can confirm this. You can't hold lands and other privileges, but you are not required to serve out his term."
+
+"That can happen."
+
+The doctor said that he had seen cases of this. "It's very sad, a very sad situation. But you are free now."
+
+"Free?"
+
+"Free to go. Free to live your life."
+
+"But where will I go? What will I do?" she said with a mixture of grief and panic.
+
+The doctor seemed embarassed by her rising emotion. He stumbled over his words, "I don't...I can't say for sure. But at least you can determine that now."
+
+As she stood there stunned in silence, two orderlies from the prison appeared to remove the body. "He'll be buried in the prison cemetary," the warden said. "Prisoners only get initials and dates on their headstone." Tara didn't respond to this information and watched as her father was removed. 
+
+Finally the warden and the doctor finished their paperwork and left the room. As the doctor left he spoke a few final words, in a kind tone, "The warden will send guards around later to check the cell. I suggest you not be here at that time. I've witnessed very unfortuante scenes when an inmate's family refused to vacate."
+
+Tara flatly replied, "I will be gone."
+
+###
 
