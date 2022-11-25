@@ -1448,3 +1448,38 @@ Tara flatly replied, "I will be gone."
 
 ###
 
+Tara finally resolved herself to gather up her things to leave the cell. She packed up a few articles of clothing and a few things that belonged to her father. She decided to keep one book and leave everythign else. She started out and crossed the prison yard. Before she reached the gate, Maggie caught up with her.
+
+"Tara!? Where are you going?"
+
+"I'm leaving."
+
+"But to where?"
+
+"I don't know yet, but I must leave. I've been told to leave."
+
+"Stay with me, I'm sure you can."
+
+"But the warden..."
+
+"Let me handle the warden. I know how to bend him and his rules to what I want."
+
+"No, I think I should leave. I think it would be better for me to leave."
+
+As they spoke, the bell began to ring out announcing that the gates would close and that cells locked. Tara was surpsied that Maggie began to cry as they stood there. She didn't think that she really meant anything to Maggie, not anything meaningful. Perhaps Maggie was crying more for herself than for Tara. Not that the difference really mattered in this moment.
+
+Maggie held back her tears and said, "Then I guess this is it. I guess you'll be off and I'll be here."
+
+"I guess so. I'm sorry."
+
+"Don't be sorry. I don't know why I'm crying. You're not the first to leave. I don't know why I'm feeling this way." Tara didn't know what to say, so she jsut looked back at Maggie. Maggie moved towards her and wrapped her up in a hug. "Take care of yourself out there. Most of the world ain't like our little prison town."
+
+"I know, thank you." Tara replied.
+
+"But at least Maggie taught you to look out for yourself a little better."
+
+Tara realized that this was true. Maggie had opened her eyes to how the world worked and made her a little better equiped to survive in it. "Yes you did and I'll never forget you for it."
+
+One of the prison guard lumbered towards them, "Gates closing soon," he said gruffly. Tara realized that the ringing bells had become more emphatic. "Come on now," the guard said. 
+
+Tara gave Magge one more hug and slipped through what remained of the gap in teh gate. The lamps on the bridge were being extinguished as Tara crossed. She looked back and could only make out the glow of small fires in the prison windows. Otherwise, it was a hulking shadow in the night that she hoped to never see again.
