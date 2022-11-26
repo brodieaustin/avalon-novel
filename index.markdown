@@ -455,7 +455,7 @@ Tara felt serious all of a sudden and considered what Ms. Reedy said. She nodded
 
 "Then my work here is done.
 
-###
+***
 
 With Ms. Reedy gone, Tara wasn't sure what she would do with her days, or what remained of her days. The only bright spot during the slow passing of these dull days was the delivery of her new dress. When it was taken to her room, she opened the box and felt her heart race in excitment, but as soon as she closed it back up, the moment passed and the dress faded from her mind.
 
@@ -1324,7 +1324,7 @@ She knew so little of the world that she could only imagine Avalon in that home,
 
 The fire had nearly burned down. Tara stoked it one more time, but there was little heat left to give. She smothered the fire and closed the grate to avoid letting in cold air. She wrapped herself up in a threadworn blanket and wondered if she would ever see Avalon again.
 
-###
+***
 
 Tara left the prison as soon as the gates opened in the morning. Winter was setting in and a cold wind blew across the lake that separated the prison from the town. She tried to stay huddled in her shawl to keep in what warmth she could as she crossed the long causeway. She finally reached the gate house at the end of the causeway, nodded to the morning guard, and walked the rest of the way into town.
 
@@ -1346,7 +1346,7 @@ She looked up again and noticed that the curtains had parted again. Only this ti
 
 Tara hurried to finish her tea and set back to the prison before it got much later. Walking down the narrow dusty roads then back to the prison, she wondered how it was that she just saw Avalon's face in a window being called on by Mr. Mercer.
 
-###
+***
 
 Mr. Mercer's attitude towards did not change at all the next time she saw him. She even worried that she might be fired. Nothing in his movements, his eyes, his voice betrayed any recollection of what had happened a few days past. He opened his apartment for her and disappeared to go about his business.
 
@@ -1446,7 +1446,7 @@ Finally the warden and the doctor finished their paperwork and left the room. As
 
 Tara flatly replied, "I will be gone."
 
-###
+***
 
 Tara finally resolved herself to gather up her things to leave the cell. She packed up a few articles of clothing and a few things that belonged to her father. She decided to keep one book and leave everythign else. She started out and crossed the prison yard. Before she reached the gate, Maggie caught up with her.
 
@@ -1540,7 +1540,7 @@ Avalon guided Tara down ont the lounge chair and covered her in a blanket. She t
 
 Avalon shifted on her side towards Tara and said, "Yes, I think I am too."
 
-###
+***
 
 <!--By the time Tara remembered that she was supposed to be at Mr. Mercer's apartment to clean, it was far too late to make her way there. The damage had been done and she would have to live with the consequences. From the the bits of information she picked up from Avalon in the morning, it might not matter anyway since Avalon planned to move to a new location sooner rather than later.
 
