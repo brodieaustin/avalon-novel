@@ -1482,4 +1482,125 @@ Tara realized that this was true. Maggie had opened her eyes to how the world wo
 
 One of the prison guard lumbered towards them, "Gates closing soon," he said gruffly. Tara realized that the ringing bells had become more emphatic. "Come on now," the guard said. 
 
-Tara gave Magge one more hug and slipped through what remained of the gap in teh gate. The lamps on the bridge were being extinguished as Tara crossed. She looked back and could only make out the glow of small fires in the prison windows. Otherwise, it was a hulking shadow in the night that she hoped to never see again.
+Tara gave Maggie one more hug and slipped through what remained of the gap in teh gate. The lamps on the bridge were being extinguished as Tara crossed. She looked back and could only make out the glow of small fires in the prison windows. Otherwise, it was a hulking shadow in the night that she hoped to never see again.
+
+She walked the darkened streets of the town wondering where to go. Without fully being aware of it, she found herself standing in the street where she had seen Avalon. She looked up at the window, noticing that it was dark. What if Avalon had left already.
+
+A woman was leaving the tea shop across the street and locking the door. She walked up to her in a soft voice, "I'm sorry but the tea shop is closed."
+
+"What's that?" Tara looked over the woman's shoulder at the tea shop's dark windows. 
+
+"The shop is closed. I recognized you from the shop. I thought maybe you were wanting a cup of tea."
+
+"No, thank you."
+
+The woman started to back away from Tara, who could not help but speak in a dazed, far away voice. "Well, in that case, have a good night..."
+
+Tara called out ot her, "Wait, do you know who lives there?" She pointed up at the windows she assumed were Avalon's.
+
+"I don't know this neighborhood too well. I live on the other side of town. Let me think" The woman studied the window. "I think I recall a woman moving in there several months ago. She came into the shop once, but never again. Hardly ever leaves. I think I saw her in the street with a man once, but they didn't seem particularly acquainted with each other, if you take me meaning."
+
+Tara thanked her and said goodnight. The woman did the same and started home. This information did not prove that Avalon lived here, but it strengthed Tara's resolve to find out. She entered the building's dark inner hallway and started up the dimly lit staircases. Single lamps lit each landing as Tara went up several flights. She thought back to her memory of seeing Avalon and thought that she lived at least three floors up. 
+
+At the top of the third floor landing, she stood in a long narrow hallway. Door punctuated the hallway on each side. She could here the rumble and murmur of people all around her. Sounds and smells of cooking mingled with coal fire smoke in the hall. She oriented herself towards the street and counted down doors until she saw one that must be Avalons.
+
+She approached the door and stood in front of it for several minutes before knocking. She felt a wave of exhaustion come over her and wanted to crumple on to the floor right there and sleep. Instead, she knew that she had to exert the energy and will to knock on the door and confront the reality that the person inside may be Avalon. The mere thought that it mgith not be here was enough to crush her to go through with this altogether. But she knew she had few options, so exhausting this one made as much sense as anything else.
+
+She knocked on the door and waited. No answer came so she knocked again. And a few more times after that. Finally she could hear feet and rustling behind the door. More silence then the door opened.
+
+On the other side of the door was a face that Tara recognized, but didn't recognize at the same time. It was like the face she saw in the window, only that face had more closely resembled Avalon's face. At least the piece of it she had seen at a distance matched her memory mroe closely than this one did up close. 
+
+The face flashed a look of recognition, then responded with a quizzical sounding, "Tara? What are you doing here?" Avalon poked her head into the hallway perhaps to see if Tara was with anyone, or to see if anyone else was waiting for her in the hall. When she saw that the hall was empty, she pulled Tara inside saying, "Get in quickly before anyone see us."
+
+She shut the door behind Tara and led her to ragged lounging chair position by the window. The room was mostly bare except for a stove, wash basin, and a table. In many ways it reminded Tara of her father's cell. The only real difference being that Avalon was in this room and not the other.
+
+She sat Tara down on the chair and poured a glass of water from a pitcher on the table. Tara took it in her hand without thinking and drank it. She handed it back to Avalon and smiled a weak smile and said, "Avalon, you're here."
+
+"Yes, I am just barely but I am here. And so are you. I know why and how I am here, but I am baffled by your being here. How did you find me?"
+
+Tara did her best to recount what had happened since their arrival in the prison. Several times Avalon had to guide Tara's narration back to the more recent future. "I'm sorry to hear about your father. He was a good recorder, the only one I ever knew, but a good one nonethless. I knew that your father had been arrested, but could never find out where you had been taken. I must be honest that I had forgotten that there was a prison here until recently."
+
+"What about you?" Tara asked in her weak, tired voice.
+
+"It's a long story, much of it does not bear repeating. I will fill in details when I can. For now I will only tell you that I found myself in trouble and with few options for removing myself from that trouble. I recalled a merchant, your Mr. Mercer, that I had run across once in my travels. I was lucky enough to find him and he brought me here."
+
+"And know you're here."
+
+"For now?"
+
+"Only for now? When are you leaving?"
+
+"I don't know yet, he only tells me that the time isn't right yet. He has needed time to prepare everything."
+
+A dark look came across Tara's face, "Do you think he plans to betray you?"
+
+Avalon shook her head and said, "No, I do not think so. I have my reasons to trust him as I do; I can't get into those reasons now, but I believe him. He has taken great risks, though he often reminds me, to provide me with the room and to keep my supplied." Avalong seemed to notice that Tara was falling asleep in the midst of their conversation. She continedu on, "But you look exhausted; you must be exhausted. You must rest and we can talk more in the morning." 
+
+Avalon guided Tara down ont the lounge chair and covered her in a blanket. She took more blankets and spread them on the floor. Tara's eyes fluttered open and close. She could feel herself slipping in and out of being awake and being asleep. She hardly noticed Avalon stretched out on the floor below her, but tiredly said, "Good Avalon, I'm glad you're returned."
+
+Avalon shifted on her side towards Tara and said, "Yes, I think I am too."
+
+###
+
+<!--By the time Tara remembered that she was supposed to be at Mr. Mercer's apartment to clean, it was far too late to make her way there. The damage had been done and she would have to live with the consequences. From the the bits of information she picked up from Avalon in the morning, it might not matter anyway since Avalon planned to move to a new location sooner rather than later.
+
+Tara spent another hour slipping in and out of sleep. The room had grown bright, almost hot, by the time she was able to rouse herself completely from her tried state. Avalon sat in a wooden chair opposite her reading. Tara saw a stack of books beside the chair. This at least answered one question she had had. What did Avalon do all day in this small one-room apartment?
+
+Certainly from the hints Avalon dropped or outright explained she didn't leave the apartment very often, only when absolutely necssary. Instead Mr. Mercer ssaw to it that she has what she need to survive. So, apparently she read books and waiting and sometimes peeked out at the street and watched people in the town go by.
+
+"Did you ever see me?" Tara asked, thinking in advance how odd it would have been if they had both seen each other, or least someone who resembled them.
+
+Avalon merely replied, "No I never did. It is funny to think that you were only hundreds of feet away from me and neither of us realized it."-->
+
+Tara woke up in the morning in a start. She was supposed to work for Mr. Mercer today. She flung back the blanket and jumped up from the chair. She splashed cold water on her face and rushed out of the door before Avalon could say anything.
+
+Being in town already, it did not take her long to reach Mr. Mercer's apartment, but she was still running very, very late. As she expected, he was waiting in the street pacing and and impatient. When he saw her, he said gruffly, "You're late. I was about to leave and terminate your employment."
+
+"I'm very sorry, I had to move last night and everything is just so..." Tara did not want to let lose her grief right now. Then she blurted out, "My father died yesterday."
+
+Mr. Mercer's face lost its hard edge and he replied simply, "I'm sorry to hear that. I'll be about my business. Just go up and get started on your tasks."
+
+Once in his apartment, she started in on her tasks, losing herself in the repitition of scrubbing and scouring and sweeping. She hardly thought about her father and the scenes from yesterday. Instead she focused her attention on the grains of wood in the floor, the glint of light on the brass fixtures she polished. 
+
+After several hours, she had almost completed her list of tasks. She was changing the linens on the bed when the door burst open. Mr. Mercer entered the apartment out of breath, caught up in some excitement or frenzy. He stopped and looked around the apartment. When he spotted her, he said, "You're in danger and need to come with me. Nevermind the bed, come on now." He went over to standing closet and rifled through it pulled out a large shawl. He tossed it to her and said, "Take this and drape it over yourself. We must avoid being seen"
+
+She followed him wordlessly, not fully understanding what threat might be out there but somehow trusting him that she was, in fact, in danger. At the bottom of the stairs, just before the street he stopped her and said. "I'm going out first. Count to twenty then you follow me. Keep your distance. Don't look like you're following me, but keep me in your sight. Keep your head down and look like you know where you are going. Do you understand?"
+
+Tara replied, "Yes, but what's..."
+
+"No time for that now. You need to trust me and do as I say."
+
+Once  she walked out in to the street, she had a better sense of what might be going on, though no understanding of the cause. Soldiers seemed to be everywhere, as if they sprung up from the ground overnight. She also recognized some of the prison guards walking with the soldiers. They were patrolling, looking into stalls, stopping people in the streets. 
+
+Up ahead, Tara saw Mr. Mercer veer suddenly into an alley to get off of the main street. She saw up ahead that the soldiers had created an improvised check point. She followed Mr. Mercer into the alley and saw him standing near a set of stairs that led down to a lower level of a building. He waved her over to follow him. At the bottom of the stairs he produced a key ring and sifted through the numerous keys before finding the right one. He opened a battered door on rusty hinges. Tara winced at the squealing grinding sound the door made, hoping it wouldn't draw too much attention to them. 
+
+Once inside, he closed the door. "This is as far as we'll make it today," he said. "I didn't expcet there to be checkpoints and soldiers. You'll be safe enough here for the time being."
+
+Tara looked around and found herself in a basement storeroom lined with barrels and boxes of goods. It was cold and a little damp in the basement. A trickle of light entered through streetside windows that were partly concealed by bars and grime.
+
+Mr. Mercer moved on the shelves aside and revealed a smaller room with a bed and a lamp. "Stay in here. Try to keep quiet and I will return when I can." He handed her a small parcel wrapped in cloth. She opened it to find a quarter of a loaf of bread and a few slices of chesse. "This is all I could muster in such a short time."
+
+She was grateful for the privision, but really wanted information. "Mr. Mercer, please tell me what is happening."
+
+"I don't know all of the details yet, but your friend from the prison found me in the street and stopped me. She was in such a state that I tried to shrug her off, thinking her nothing more than a nuisance. She persisted and finally told me that soldiers had shown up at the prison in the morning, led by a someone she described as the most evil looking man she had ever seen. She thought she heard your name and listened in on their conversation. It seems that the warden made a mistake releasing you from the prison. Now the soldiers and guards have been ordered to find you with all possible haste."
+
+"I see. Is this because of my father?"
+
+"I can only assume. I don't know how much information I'll be able to gather without attracting attention. What matters now is that you wait here until I return."
+
+Without thinking Tara said suddenly, "Someone will need to tell Avalon."
+
+Mr. Mercer did not seem to understand her. He replied, "Tell who?"
+
+"Avalon, the woman you're helping. We need to tell her where I am. She'll worry otherwise."
+
+Again, Mr. Mercer acted as if he didn't know who Avalon was and why communicating anything to her might matter to him. He merely replied, "Unfortunatey, I don't know what your talking about. I will return."
+
+
+
+
+
+
+
+
+
