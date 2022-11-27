@@ -251,7 +251,7 @@ At last they were on their way. Ms. Reedy could not resist instructing Tara not 
 
 Her anticipation nearly burst forth in an exasperated cry when the carriage came to a sudden halt in the midst of their journey. The stop was so quick that Tara and Ms. Reedy both nearly bounced out of their seats.
 
-"Why are the stopping?" Tara asked.
+"Why are we stopping?" Tara asked.
 
 "I do not know. Hopefully it isn't due to brigands," Ms. Reedy replied. No matter how long she lived in this remote corner of the worlds, Ms. Reedy could not let go of the idea that run into brigands would be more likely here in the middle of nowhere than a place like the capital that Tara knew from the scandal sheets, and from Avalon herself, was rife with criminals and neerdowells.
 
@@ -267,7 +267,7 @@ Tara could see the driver shaking his head, backing away. She could just make ou
 
 Ms. Reedy replied in a stern voice, "You must. We cannot leave her here."
 
-"No, ma'am, I resptively decline. They say those eyes can see into your soul."
+"No, ma'am, I resptively decline. Not when she's wearing that thing. They say those eyes can see into your soul."
 
 "Well at this point, your soul has been sufficiently peered into. Besides, I hope, for your sake, that there isn't any darkness lurking there."
 
@@ -283,7 +283,7 @@ Tara struggled against Ms. Reedy's surprising stregth, bu could only lamely call
 
 "What are we going to do?"
 
-Ms. Reedy let go, "Stey, do not get any closer." Tara looked down at Avalon. She was curled up with her back to them. The eyes on the cloak rolled wildly in all directions, a chaotic jumble of movement in contrast to her inert form. 
+Ms. Reedy let go, "Stay, do not get any closer." Tara looked down at Avalon. She was curled up with her back to them. The eyes on the cloak rolled wildly in all directions, a chaotic jumble of movement in contrast to her inert form. 
 
 Tara had never really seen Avalon dressed in her "traveling clothes" as she had called them. She had never really been allowed to see her dressed this way. She wondered if the driver  was right. What would happen if she touched her? Did Ms. Reedy believe what the driver beleived. She must have been wary enough because they were all just standing there. Tara finally cried out, "We must do something. Please, please do something!"
 
@@ -1542,15 +1542,71 @@ Avalon shifted on her side towards Tara and said, "Yes, I think I am too."
 
 ***
 
-<!--By the time Tara remembered that she was supposed to be at Mr. Mercer's apartment to clean, it was far too late to make her way there. The damage had been done and she would have to live with the consequences. From the the bits of information she picked up from Avalon in the morning, it might not matter anyway since Avalon planned to move to a new location sooner rather than later.
+Tara spent most of the next morning slipping in and out of sleep. The room had grown bright, almost hot, by the time she was able to rouse herself completely from her tried state. Avalon sat in a chair by the window looking out at the passing scenes of life outside.
 
-Tara spent another hour slipping in and out of sleep. The room had grown bright, almost hot, by the time she was able to rouse herself completely from her tried state. Avalon sat in a wooden chair opposite her reading. Tara saw a stack of books beside the chair. This at least answered one question she had had. What did Avalon do all day in this small one-room apartment?
+When she saw Tara finally wake up, she smiled and said, "You were very tired. I decided to let you sleep."
 
-Certainly from the hints Avalon dropped or outright explained she didn't leave the apartment very often, only when absolutely necssary. Instead Mr. Mercer ssaw to it that she has what she need to survive. So, apparently she read books and waiting and sometimes peeked out at the street and watched people in the town go by.
+Tara stretched out her arms and sat up right. She looked over the room in the plain daylight, though her impression of it did not change much from the night before. It was a plain room, tidy by virtue of being essentially empty, and showing signs of age and use. 
+
+"Are you hungry?" Avalon asked in a queit voice. Tara always thought of her being serene and calm, certainly that was the influence she had brought to bear on Tara in her more exciteable moments. Now her voice carried tones of fatigue and strain. Her face was more worn and strained as well. Whereas she had seemed like someone who existed outside of time before, now the world and all of its cares had caught up with her.
+
+Avalon prepared a small breakfast for them from her meager stores. She apologized for how littlee she had to offer, "I hardly eat and have tried to stretch my stock of things even further."
+
+"It's fine, really," replied Tara, happy to have anything to fill the hole inside her. She cupped the cup of weak tea in her hands too, satisfied by the feeling of heat permeating through the procelain and into her hands. Tara took a sip then said, "I still don't understand how you came to be here. What do you do all day?"
+
+Avalon sighed and said, "It seems all I do is wait. There is little else for me to do. My life of waiting started once you left for the capital. Then I was waiting for you to return, only to find out that I was waiting for news about your and your father. The doctor from the village eventually made his way to the cottage and informed the few of us left there what had happened."
+
+"Gregory and the cook insisted on staying but I made them leave. I had no way of paying them and knew that someone would be paying me a visit sooner or later. It only took a few days until a contingent of soldiers appeared."
+
+"Were they there to arrest you?" Tara asked.
+
+"No, they were escorting a new recorder, one to take your father's place. She was a vile creature, all smiles and kindness, but I could see the calculation in her eyes. She was trying to win me to her side. But she was there to carry out some ambitious plan."
+
+"What kind of plan?" Tara interjected.
+
+"I do not know the full scope of it, but it started with emptying the observatory of its records and equipment. 'Consolidation' she called it. And I was to recloate to a new facility."
+
+"What happened to the cottage?"
+
+"I do not know that either. It was standing when we departed. It's either been taking over by squatter or given to someone in the king's service to occupy. It comes to the same thing in the end, though."
+
+Tara nodded her head. Her childhood home was gone. The king had been true to his word about rights and privileges being stripped away. Any claim to status or position would be tenuous at best. This new person she had become wasn't just a temporary being she was inhabiting. She was this person now going forward.
+
+"When their preparations had been made, we set out for my new home. I was instructed to sit with the new recorder in her carraige. It was a long journey, but at least it was made shorter by the fact that she spoke almost without pause the entire time. She had a peculiar gift of making almost any occurence aroudn us relate back to her." Avalon shook her head, "It really was remarkable"
+
+"We finally arrived at the new observatory, a massive structure, and I was sent out to travel the world as I always did. Only now, I felt more like a spy than a vigilant."
+
+"What does that mean?"
+
+"It means that I was suddenly told to focus my attention on specific people and specific places. I presume these were the king's enemies."
+
+"And it was unusual?"
+
+"Yes, a vigialnt's job was not to target individuals and observe them, but to see all around them. I kept this up for several months, waiting for an opportunity to escape."
+
+"And that's how you met up with Mr. Mercer?" 
+
+Avalon tilted her head in confusion, "How do you know, Mr. Mercer?"
+
+"I worked for him. I cleaned his apartments. It was by chance that I saw him enter your apartment one day."
+
+Avalon reflected on this, "How strange and unlikely. He did not enter the picture until later, but yes, my life as a fugitive from the king eventually led me to him and to here and to you."
 
 "Did you ever see me?" Tara asked, thinking in advance how odd it would have been if they had both seen each other, or least someone who resembled them.
 
-Avalon merely replied, "No I never did. It is funny to think that you were only hundreds of feet away from me and neither of us realized it."-->
+Avalon merely replied, "No I never did. It is funny to think that you were only hundreds of feet away from me and neither of us realized it. But that is enough storytelling for now. I am tired again and need a rest."
+
+"You probably didn't sleep well on the floor, take the chair. I'll be fine on the floor." Tara said. Avalon stood, but her knees nearly gave out under her. Tara helped support her and moved her to the chair. 
+
+Tara left the apartment for a hours later in the day, but spent most of it idly in the one-room apartment with Avalon. Avalon slept for several hours until she was strong enough again to sit up and eat something. Tara was surprised by how weak and frail Avalon had become. Avalon did not offer a specific explanation but seemed to hint that being a vigilant took its toll on a person.
+
+"We give our youth to the role," she said at one point.
+
+Tara thought about her father and Schiller both suffering from headaches and poor health as a result of their role as well. Yet all three had carried on with their duties, motiviated by what, Tara did not know, but presumably from a believe in the importance of what they did for the kingdom. Now they were living in hiding, arrested, or desased on a account of that belief.
+
+<!--Certainly from the hints Avalon dropped or outright explained she didn't leave the apartment very often, only when absolutely necssary. Instead Mr. Mercer ssaw to it that she has what she need to survive. So, apparently she read books and waiting and sometimes peeked out at the street and watched people in the town go by.-->
+
+###
 
 Tara woke up in the morning in a start. She was supposed to work for Mr. Mercer today. She flung back the blanket and jumped up from the chair. She splashed cold water on her face and rushed out of the door before Avalon could say anything.
 
@@ -1596,11 +1652,6 @@ Mr. Mercer did not seem to understand her. He replied, "Tell who?"
 
 Again, Mr. Mercer acted as if he didn't know who Avalon was and why communicating anything to her might matter to him. He merely replied, "Unfortunatey, I don't know what your talking about. I will return."
 
+# Chapter 9 #
 
-
-
-
-
-
-
-
+<!-- Mercer leads Tara out of the town the base of the mountains. Have to hide in a cart, going over the pass. Avalon is there. Encounter soldiers with a vigilant. Cart driver kills soldiers and the vigilant. Get the cloak? They go to a mountain lodge, hunting retreat. King's nephew is there. Tara thinks she's been betrayed. He doesn't like the king. -->
