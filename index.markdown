@@ -1013,7 +1013,7 @@ Tara didn't know how to respond. He was asking the question so matter of factly 
 
 "The term?"
 
-"Life. He's two years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close with her at all time, having heard stories that it could extricate her from difficult situations, but she kept it out of sight and carried it about like a mark of shame too. She had been told early on to only use it if absolutely needed. 
+"Life. He's three years into his sentence. But I'm free to come and go. I have a letter here." She produced the letter from the prison's warden. She kept it close with her at all time, having heard stories that it could extricate her from difficult situations, but she kept it out of sight and carried it about like a mark of shame too. She had been told early on to only use it if absolutely needed. 
 
 The man took the letter from her and lowered his glasses perched on his head to read it. "Well this all sounds very official."
 
@@ -1225,7 +1225,7 @@ They both entered the cell, smaller than their own, being only one room, but mad
 
 With the door shut behind them, the old man, Schiller, motioned them to sit on the bed, while he perched on the edge of the chair. Even though he was older than her father, the man seemed to burst with nervous energy. He ran his hand constantly through his beard. He picked at this finger nails and nervously ran his hands up and down the front of his shirt. "I heard a rumor that you had been imprisoned."
 
-"Yes," her father replied, "Nearly two years ago. What are the odd we end up in teh same place."
+"Yes," her father replied, "Nearly three years ago. What are the odd we end up in teh same place."
 
 The old man scoffed, "Well the prisons are filling up and I never considered the current regime to be overly concerned with the particulars of things."
 
@@ -1239,15 +1239,15 @@ As if remembering that she was there, her father turned to Tara and introduced h
 
 Nevertheless she politely respodned, "I am well, thank you."
 
-He turned to her father again, "So, nearly two years on and you're still here."
+He turned to her father again, "So, nearly three years on and you're still here."
 
 "No one has told me otherwise. But I am more eager to know why you are here."
 
-"I ran afoul of the Inspector General and my protests to the king went unheard."
+"I ran afoul of the Director and my protests to the king went unheard."
 
 "Inpector General?"
 
-"Yes, he oversees the recorders adn vigilants now. Makes the final determination about the archive."
+"Yes, she oversees the recorders adn vigilants now. Makes the final determination about the archive."
 
 "The recorders no longer decide?"
 
@@ -1255,7 +1255,7 @@ He turned to her father again, "So, nearly two years on and you're still here."
 
 "I see," her father replied.
 
-Tara was puzzled by this discussion so interjected into it, "I don't understand. Why would this Inspector General be a problem?"
+Tara was puzzled by this discussion so interjected into it, "I don't understand. Why would this Director be a problem?"
 
 The old man said, "The recorders were never intended to work that way. Each recorder reviewed the record, decided upon its final contents, and verified it. This was meant to ensure greater accuracy and veracity."
 
@@ -1265,7 +1265,7 @@ The old man said, "The recorders were never intended to work that way. Each reco
 
 "So the Inpsector General is the one who decides now?" she asked.
 
-"Or whomever he reports to or whomever that person reports to."
+"Or whomever she reports to or whomever that person reports to."
 
 "Ultimatley the king," her father chimed in. "The king is the one who decides now."
 
@@ -1288,7 +1288,7 @@ Tara looked over at her father who seemed to understand the thoughts reeling thr
 "About my vigilant. What happened to her as a result of my...situation?"
 
 <!-- need to fact check this next assertion against earlier scenes -->
-Even after two years, her father refused to call his imprisonment anything besides his "situtation," assuming he referred to it at all. 
+Even after three years, her father refused to call his imprisonment anything besides his "situtation," assuming he referred to it at all. 
 
 Schiller shruggedl and said, "I never heard anything. Who knows. Vigilants have such short lives as it is."
 
@@ -1448,7 +1448,41 @@ Tara flatly replied, "I will be gone."
 
 ***
 
-Tara finally resolved herself to gather up her things to leave the cell. She packed up a few articles of clothing and a few things that belonged to her father. She decided to keep one book and leave everythign else. She started out and crossed the prison yard. Before she reached the gate, Maggie caught up with her.
+Tara finally resolved herself to gather up her things to leave the cell. She packed up a few articles of clothing and a few things that belonged to her father. She decided to keep one book and leave everythign else. 
+
+She started out and crossed the prison yard, but stopped halfway. She decided that she should call on Mr. Schiller and say goodbye to him. The thought of being able to say a proper goodbye to the old man eased her mind and seemed like a necessary thing to do.
+
+She walked back to the nearest staircase and walked down the long exposed passageways until she reached his cell. She knocked on the door. Almost on cue, the old man's voice croaked out, "Go away!" 
+
+"It's me, Mr. Schiller. Tara, Mr. Arch's daughter." The old man opened the door. His skin looked soft and more wrinkled than it had even just a few days ago. He also walked much more slowly. The fire inside him seemed to have gone out already. She had seen this, of course, happen with her father, but this process seemed to have accelerated with this old man.
+
+"I heard about your father. Terrible shame. He was a model recorder, one of the best there was."
+
+"Thank you. I appreciate that. I've been ordered to leave the prison now that my father has passed. I wanted...I wanted to say goodbye. Since you knew him, I wanted to say goodbye."
+
+"These are trying times, Tara. You must be strong. You must find a way to survive." Tara watched as Mr. Schiller nearly shook with something like rage. He sat down suddenly, clutching his head. 
+
+"Headaches?"
+
+"Yes, I try not to get overly excited. It makes them much worse."
+
+"I'm sorry. I didn't mean to upset you."
+
+"No, do not apologize. I'm glad you came. Since you are here, I should give you something."
+
+"That's not necssary. You shouldn't."
+
+He stood up and wobbled, steadied himself then walked over to the trunk of belongings he had been allowed to keep. "Take this, it's winter and your shawl looks particularly thin."
+
+He handed her a thick cloak made up of many layers and coarse fabric. Even in the dim light, Tara would tell that the it had been hastily stitched together, but it did seem warm. She took it and wrapped herself in it, "Thank you, I may need it."
+
+"Yes, you may never know when something like that may be needed."
+
+"I should leave you now, I don't want to anger the guards."
+
+"Of course." He reached out and shook her hand. She embraced his frail body in a hug and left the cell.
+
+She retraced her steps and headed towards the prison gates. Before she reached the gate, Maggie caught up with her.
 
 "Tara!? Where are you going?"
 
@@ -1522,19 +1556,27 @@ Tara did her best to recount what had happened since their arrival in the prison
 
 "What about you?" Tara asked in her weak, tired voice.
 
-"It's a long story, much of it does not bear repeating. I will fill in details when I can. For now I will only tell you that I found myself in trouble and with few options for removing myself from that trouble. I recalled a merchant, your Mr. Mercer, that I had run across once in my travels. I was lucky enough to find him and he brought me here."
+"It's a long story, much of it does not bear repeating. Let us rest while we can. I will try to fill in as many details tomorrow as I can. For now I will only tell you that I found myself in trouble and with few options for removing myself from that trouble. I recalled a merchant, your Mr. Mercer, that I had run across once in my travels. I was lucky enough to find him and he brought me here."
 
-"And know you're here."
+"And now you're here. You're safe."
 
-"For now?"
+"I do not know if I would call this safe. I do not feel safe. It feels like there is danger everywhere. Too many people, too many chance encounters. Even you, dear Tara. As delighted as I am to see you, you recognized me as a mere piece of a face in the window."
 
-"Only for now? When are you leaving?"
+"True, but I know your face well."
 
-"I don't know yet, he only tells me that the time isn't right yet. He has needed time to prepare everything."
+"That might be the case, but I feel more unsettled now, more exposed. For a brief time, I felt like these walls protected me."
 
-A dark look came across Tara's face, "Do you think he plans to betray you?"
+"And they might. I didn't tell anyone where I was going. I never mentioned seeing you, not even to my father."
 
-Avalon shook her head and said, "No, I do not think so. I have my reasons to trust him as I do; I can't get into those reasons now, but I believe him. He has taken great risks, though he often reminds me, to provide me with the room and to keep my supplied." Avalong seemed to notice that Tara was falling asleep in the midst of their conversation. She continedu on, "But you look exhausted; you must be exhausted. You must rest and we can talk more in the morning." 
+"Then maybe we are safe for now. Regardless, the plan always was to relocate somewhere else."
+
+"When were you planning ot leave?"
+
+"Sooner? Later? Never? Mr. Mercer is evasive when I ask him, even when I plead with him. He only tells me that the time isn't right yet. He always needs time to prepare everything. He is methodical and careful, but that also means slow. And my restless heart can't bear slow for much longer, I'm afraid."
+
+A dark look came across Tara's face, "Is he merely delaying? Do you think he plans to betray you?"
+
+Avalon shook her head and said, "No, I do not think so. I have my reasons to trust him as I do; I can't get into those reasons now, but I believe him. He has taken great risks, though he often reminds me, to provide me with the room and to keep me provisioned, even though the provisions are meager. I'm used to less. I'm used to nothing." Avalon seemed to notice that Tara was falling asleep in the midst of their conversation. She continedu on, "But you look tired; you must be exhausted. You must rest and we can talk more in the morning." 
 
 Avalon guided Tara down ont the lounge chair and covered her in a blanket. She took more blankets and spread them on the floor. Tara's eyes fluttered open and close. She could feel herself slipping in and out of being awake and being asleep. She hardly noticed Avalon stretched out on the floor below her, but tiredly said, "Good Avalon, I'm glad you're returned."
 
@@ -1602,7 +1644,7 @@ Tara left the apartment for a hours later in the day, but spent most of it idly 
 
 "We give our youth to the role," she said at one point.
 
-Tara thought about her father and Schiller both suffering from headaches and poor health as a result of their role as well. Yet all three had carried on with their duties, motiviated by what, Tara did not know, but presumably from a believe in the importance of what they did for the kingdom. Now they were living in hiding, arrested, or desased on a account of that belief.
+Tara thought about her father and Schiller both suffering from headaches and poor health as a result of their role as well. Yet all three had carried on with their duties, motiviated by what, Tara did not know, but presumably from a believe in the importance of what they did for the kingdom. Now they were living in hiding, arrested, or decesased on a account of that belief.
 
 <!--Certainly from the hints Avalon dropped or outright explained she didn't leave the apartment very often, only when absolutely necssary. Instead Mr. Mercer ssaw to it that she has what she need to survive. So, apparently she read books and waiting and sometimes peeked out at the street and watched people in the town go by.-->
 
@@ -1650,8 +1692,286 @@ Mr. Mercer did not seem to understand her. He replied, "Tell who?"
 
 "Avalon, the woman you're helping. We need to tell her where I am. She'll worry otherwise."
 
-Again, Mr. Mercer acted as if he didn't know who Avalon was and why communicating anything to her might matter to him. He merely replied, "Unfortunatey, I don't know what your talking about. I will return."
+Again, Mr. Mercer acted as if he didn't know who Avalon was and why communicating anything to her might matter to him. He merely replied, "Unfortunatey, I don't know what you are talking about. I will return."
 
 # Chapter 9 #
 
-<!-- Mercer leads Tara out of the town the base of the mountains. Have to hide in a cart, going over the pass. Avalon is there. Encounter soldiers with a vigilant. Cart driver kills soldiers and the vigilant. Get the cloak? They go to a mountain lodge, hunting retreat. King's nephew is there. Tara thinks she's been betrayed. He doesn't like the king. -->
+Early the next morning to door to the storage room opened suddenly. Mr. Mercer walked into the room barking commands at her. "Gather yourself. We must move right away." Tara had not slept well the night before and still felt half asleep. Even in this state, Mr. Mercer's urgency inspired her to move as quickly as she could. She followed back up the stairs in the the alley behind the building. A cart was waiting there carrying a seeminly heavy load of wooden crates. 
+
+Mr. Mercer waved her into one of the open crates. "It'll be cramped, but there's room enough. I've made sure you'll be able to breath too. They're not made well enough to suffocate anyone besides." Tara crouched down into the crate and watched her field of view narrow to nothign as Mr. Mercer lowered the top of the crate down over her.
+
+Tara could just make out the passing landscape through the slivers of cracks in the create. Mr. Mercer was right about the crate being hot and uncomfortable. Not only was the space tight, but it provided little cushion against the bumps and bangs caused by the wagon. Tara did her best to brace herself to avoid slamming into the sides of the crate as best she could.
+
+She could tell that they were moving through the town streets as she was able to make out thin slices of stone and wood and daubed buildings. It was still early enough in the morning that the sun has just barely risen. The air was cold and kept most of the town's causual passerbys at home. Tara wondered if alone cart out so early would attract attention, but they probably just looked like a merchant making deliveries or passing through towns.
+
+It also turned out the soldiers at the ad hoc checkpoint out of town were less vigilatn this early in the morning. Tara could tell that they had stopped suddenly and it wasn't until she heard the back and forth of several voices, including Mr. Mercers that she picked up on what was happening. Once she realized that they were at a checkpoint, she started to worry that they might check the wagon's contents.
+
+Fortnuately, for Tara, this did not turn out to be the case. Instead one of the sleepy soldiers circled the wagon, tapped a few of the crates with something hard and hammerlike then grunted inaudble words to the other guard. Soon enough the cart had started up again and they were on their way.
+
+Easily a half of an hour passed before the wagon stopped again. This time, however, she could hear Mr. Mercer alight from the wagon. Tara pressed her ear up the crate's edge to hear as best as she could. She could distinctly hear scrape and pop of a lock. Then the sound the hinges squaling from rust and disuse. The wagon started up again then stopped. 
+
+The sounds of the horses's hoofs and wagon wheels resonated in whatever kind of space they were in now. Everything had gotten darker, so Tara assumed they were inside of...something.
+
+Soon enough the crate opened and Tara stood up to exit the create then the wagon. She stepped down on a wooden floor and looked around. They had stopped inside of an abandoned barn. The only significant source of sunlight was a place in the far corner where the thatch had been torn away and the roof beams collapsed. Not far below this, Tara spotted the remnants of a camp and a fire.
+
+She heard her name and turned around. There was Avalon, sitting on a crude bench that had probably been used to tend to animals when this barn had been in use. She sat huddled up against the cold, somehow appearing to be even more tired than before in the apartment. "Tara, you made it," she said smiling.
+
+"Yes, I'm here."
+
+"Come, sit next to me. Maybe we can keep each other warm. I've been told we're not allowed to have a fire." Mr. Mercer, who was walking the permiters of the barn's insides checking doors interjected, "Risk of detection much too high" and contineud his inspection.
+
+Avalon smiled a weak half-smile then sighed, "Oh well, perhaps this stop will turly be temporary."
+
+Mr. Mercer stopped his inspection in front of them. Arms on his hips, he looked around, looking dissatisfied. "Within an hour or two, we'll meet up with our driver and be on our way."
+
+"I hope you're right," Avalon said. Tara was surprised by the defiant tone that Avalon took with Mr. Mercer. She was so used to thinking of him as an employer, someone who commanded, or at least demanded, her deference. It surprised her to hear someone speak to him as an equal. 
+
+As ever, Mr. Mercer was true to his word. Within a few hours, they heard another wagon advancing then stop. An elaborte series of knocks back and forth across the door ensured. Finally, Mr. Mercer unlocked the door and pushed into it to open it up for the other driver.
+
+A tall, broad shouldered woman walked into the barn leading a stout looking oxen followed by a cart. The cart looked almost identical to the one she had hidden in and that now set off to the side of the barn only this one was empty. Once side the woman unhitched her oxen from the cart then hitched it to the cart with the false crates and boxes.
+
+Finally she walked over to their small circle of benches and stools and stood, arms folded, "So, are we starting this journey now or not?"
+
+Mr. Mercer joined them and said, "This is Sanna. She is a driver who I trust with more...sensitive jobs. She will be taking you over the mountains."
+
+Avalon looked up, "Over the mountains at this time of year? The pass will snowed in already."
+
+The driver, Sanna, interjected, "And watched closely by the king and the merchant's guild. But we won't be taking the pass, at least not directly."
+
+Tara added her lingering question, "Where are we going?"
+
+Mr. Mercer added, "We'll keep the exact information between Sanna and myself for now. Suffice it to say you'll be heading for a safe house. Let's not waste anymore time, I need to get back to town before people start asking too many questions."
+
+Sanna and Mercer packed the wagon from a store of provisions that had been stored in the barn. They packed them carefully into compartments hidden in the bottom of the wagon, then placed the create back over the compartments. Sanna fed the ox then turned to Tara and Avalon, "It's time to load you up." She helped them both in to crate and sealed them up. She covered the crates with heavy blankets. Tara could hear the barn door open again. Sanna let out a gruff "yip" and the wagon lurched forward out into the cold.
+
+###
+
+The beast pulling the cart was not a horse and could not be whipped up to a brisk trot. Tara was losing track of time cramped in the back of the wagon, but not because it was moving too quickly. To the contrary, she couldn't keep track of it becaseu it seemed to be moving so slowly. Tara felt each turn of the wheels, listented to the full whine and whirl as they moved inch after inch, foot after foor. All she could do was stay concealed there in her create with the heavy blankets thrown over everything.
+
+Though she was young, Tara had heard enough from Avalon and had read enough in her books to know that Sanna was involved in smuggling. She had read a story about a group of smugglers who were equipped with carts very similar to this one. Would others recognize the creaking wagon with the hidden compartments for what it was? Or would they pass over as this...driver made her way down from the mountains.
+
+Knowing that she could not burst forth from her captivity and take the reins, Tara spent her confinement collecting her thoughts. She focused particularly on this women and wondered why she had agreed to help her and Avalon. Was  this just another job that Mercer had paid her to do. Tara assumed that she was taking a risk by transporting them. What would happen to her if they were caught. It struck Tara that she did not ask the same question about herself and Avalon, but decided it was best not to linger on this. Sannaa had considered the risks and taken this job in whatever guise it was presented to her. Tara shouldn't probe at the particulars of that. 
+
+After that, Tara started to focus on the sloshing sounds that came from the barrels packed in around them. She wondered what was in them. Were they part of some legitimate shipment, or part of some other ruse maybe wholly unrelated to transporting her and Avalon out of the town. If she was used to hauling around these large containers, then no doubt she gained her stregth and size by hauling and lugging the huge containers here and there.
+
+As they traveled on, the sloshing sound made Tara feel as though they were stow aways on a ship crossing rough seas. At least there in the open water your destination was shore. Here on land, shoved in this woman's wagon, the destination was unknown, Tara's course uncharted.
+
+Tara wasn't sure how much more time had passed, but they finally stopped. "It's night?" was the first questioned she asked when the blankets pulled back and she could look out through the cracks in the crate. It was much darker out than she had expected.
+
+"Yes, it's nearly nightime now. Getting too dark to travel much futher up into the mountiains. Has been for a while, but I wanted to put more sitance between us and the town," Sanna replied. She reached down to help Tara up. "You can stretch your legs if you'd like, but make it quick." When Tara looked back at Avalon's crate, the woman added, "Do not worry about her, she's likely to sleep for a while."
+
+Tara jumped down from the wagon and her stiff legs caught her and buoyed her up. They loosened quickly enough as she paced around the wagon. She could feel the cold mountain air seeping through her clothes.
+
+"Don't wander off," the Sanna warned her. "And be careful about your tracks."
+
+The road here, really the ruts that made up the road now, was really just layers and layers of compacted snow. If it had not been for the surefooted beast and the studded wagon wheels, they would not have made it far at all. Tara's feet even slipped out from under her several times. She caught her balance quickly. On the compacted road, her route around the wagon would leave little to no trail, certainly nothing that anyone looking for them or not could pick up.
+
+She did not hear to woman calling her over to sit. When she did hear, she came over to the back of the wagon. The woman had opened up one of the compartments and got food out. She wa chewing on a length of dried meat, had more in her hand along with hard biscuits. She ripped off another bite from the dried meat and offered some to Tara and said, "Might as well eat now that we have the chance. Fair won't be much more than this."
+
+Tara took the food and smiled, "I'm used to much less."
+
+Sanna looked at her, looked as if she was really studying her, "If it weren't for your clothes and what little I know of your story from Mercer I would have assumed that you were used to fancy meals and servants and things that high born people come to expect out of life."
+
+"That was me, at least to some extent. But that life seems very far away from me now. I hardly recognize that person anymore."
+
+"Well that happens to us all. We all grow old and that younger person lingers like someone you didn't mean to invite in, but found their way in anyway."
+
+Tara replied, "Yes, I can see how that would be the case."
+
+She finished chewing the meat then turned to the hard bread. It became tacky and chewy as Tara tried to eat them. Deciding that she could not chew the bite completely, she settled on sucking on it in the back of her check. Even though it had been a rustic meal, she felt revitalized very quickly, ready to continue their journey.
+
+***
+
+As the wagon rocked and bounced over those hard icy roads, Tara swayed in and out of sleep. Several hours after the break, the wagon lurched to a stop. Tara's eyes opened wide at the sound of a men's voice. She could only just make out what was happening outside, but she heard Sanna assert, "You've no reason to search me..." Then an argument ensued. The wagon rocked back and forth. The quarrel was agitating the beast. Sanna tried to calm it. Tara twisted slightly to press her ear closer to hear better.
+
+"These are free roads for trade. You need to let me pass."
+
+"These roads aren't meant for smugglers," the man said.
+
+"I told you. I'm not a smuggler."
+
+Another voice intejected now, ""We've got orders to close the smuggling routes in the mountains. We find you on this back road and what are we supposed to think."
+
+These men were determined to search the wagon and Tara knew there was not much Sanna could do to stop them. Tara could hear a heavy pair of boots crunching in the snow near the wagon now. The smelling of smoke and ale wafted from the man as he circled near where Tara was hiding. She could hear him begin to pull back heavy canvas covers, pushing boxes aside. The sound woke must have woken Avalon up finally. Tara could hear a quiet rustling in the other create. She closed her eyes and hoped that Avalon would have enough sense to stay put and stay quiet. 
+
+Suddenly the covering over her create was pulled back. Tara could just make out a soldier's eye staring at her through the crack in the create. It grew wide with surprise. "Hey, what's this!?" the man cried out.
+
+Tara instincively reeled backward, pitching herselt against the far side of the crate. She heard another pair of feet rush forward. Then a loud thwacking sound announced that the soldier had been struck. Severl more voices cried out in alarm. Tara could hear a bow being drawn and quarterstaves knocking violently against each other. Another man cried out in pain. Tara heard the bow release and thud into something, a tree? Sanna? She could not tell.
+
+The fighting lasted for a few more minutes until one final thud landed and a body fell to the ground. Tara held her breath waiting to see who had emerged victorious. While she crouched here, she whispered, "Avalon? Can you hear me?"
+
+"Yes, what is happeneing?"
+
+"I think we were stopped by soliders. A fight broke out."
+
+"Did we win?"
+
+"We won't know until someone opens the crates. Just then, her create did open. Tara was staring up at Sanna's grim looking face. She had a large red welt on the side of her face. It was not until Tara sat up that she saw an arrow poking out from the woman's side and blood flowing freely over her clothing, coloring the wagon's covering red. "You're hurt," she said.
+
+"Yes, but I will survive. You'll help me. I need you to drive the cart."
+
+"But where are we going."
+
+"Some place safe and not far, but I will be too weak to drive soon. The beast knows the way. We've been this way many, many times. But we ca not have a riderless wagon along these roads, especially at night and especially where we're going. Go up front a drive. Now."
+
+Tara usually did not take commands well, but she listened to the woman's strained order. She jumped out of the wagon and climbed up front. Around her, five soldiers lay knocked out. Good riddance, she thought, not immediately considering the difficulties this new development might introduce.
+
+Sanna let Avalon out now, apparently feeling that the need to conceal their movements had passed. She climbed up into the wagon. She pointed out a bundle of rags to Avalon, who began tearing the rags and using them to staunch the bleeding as best she could.
+
+Tara took up the stiff reins. The beast lurched forth now that it sensed a driver in place. Tara did not know how to drive an animal, but the Sanna was right. The beast seemed to know where it was going.
+
+***
+
+They veered off the road suddenly. The beast seemed to be following some barely visible path through the woods. Tara could not make out the path herself and her hands slacked off on the reins. She had held them tightly, even though she had done nothing useful with them for the last few hours.
+
+There did not seem to be tracks for the wagon to follow, which meant that this path was rarely used. This also meant that the track was not well worn. The wagon jostled from side the side, much more roughly than before. The sudden increase of groans from the back meant that Sanna and Avalon could feel it as well.
+
+Avalon called out, "Tara, Tara, stop the wagon and come here." Tara pulled back on the reins as forcefully as she could. The beast did not want to stop, but her persistence finally persuaded it to stop. She jumped down from the front of the wagon and ran to the back. Sanna was pale and breathing rapidly. She held her side, though the red had bled through all of the rags she held there.
+
+Avalon looked at Tara, "This wound does not look good. We must find help soon or she will die."
+
+Tara looked at Sanna, "How far is our destination?"
+
+Sanna looked about in her delerium, "I don't know. Let me think." She closed her eyes and was quiet for several minutes. "Are the trees thinning?"
+
+It was Tara's turn to look around. She thought maybe they were. "Yes, I think so."
+
+"Good, and the trail should be descending now." Tara replied that it was. "The trail will veer off to the left soon. then we won't be long."
+
+"Okay, so we keep going?" Tara asked, looking at Avalon. Avalon could only nod in reponse. They were both at the mercy of the trail and the beast. 
+
+Before Tara returned to front of the wagon, Sanna held out her hand to stop her, "There might be some complications when we arise. Just tell them Marin is making a delivery."
+
+She snapped the reins and the beast lurched forward again. Just as Sanna had predicted the trail continued to descend then wound to the left. She could see a clearing up ahead and the faint outlines of what appeared to be some kind of structure, though she could not tell what type.
+
+Just as the building--a large stone and wood house with gables and peak and chimneys pouring out smoke into the cold air--came into view, a voice called out, "Stop there. You are not authorized to be here."
+
+A guard stepped into the path to block their progress. Tara recoiled at first thinking they had been caught by soldiers again, but realized that this guard wasn't dressed like a soldier at all, more like a woodsman or ranger. His loose drab clothing would have blended into the surroundings perfectly had it not been for all of the snow and ice around them.
+
+The guard stepped forward to her and said, "I suggest that you turn back immediately. My lord does not take kindly to intruders on his land."
+
+"Tell your lord that Marin is here to make delivery."
+
+The guard looked puzzled at first, "Unless you have shrunken, you are not Marin." Before Tara could respond, the guard finally noticed that there were two people in the back of the wagon. Before Tara could stop him, he was circling to the back and saw Avalon and Sanna sitting there. "Marin, what happened?"
+
+Tara spun around. Of course Senna used multiple names, she thought. Was Senna even her real name? Marin or Senna replied to the guard, "An arrow got the better of me. I was hoping someone here could help me out."
+
+The guard whistled a sharp loud whistle and two more guard materialized, seeminly out of nowhere, from the woods. The guard turned to her, "She's mortally injured. We must get her inside to the healer." They helped Sanna down from the wagon and carried her as best as they could to the house. 
+
+The guard returned to Tara and said, "Steer the wagon to the barn over there. One of the hands will tend to the animal. I will escort you inside."
+
+# Chapter 10 #
+
+Tara could not remember the last time she had taken a luxurious bath. Even if taking such a bath had been a dim memory, it was nothing like this one. She had been shown to a private chamber with a large bed draped with heavy curtains to keep out the cold. A large armoire sat in the corner. But it was the tub standing off the side that drew her eye. The servant who had shown her to her room asked if she would like a bath. 
+
+Some time later the servant returned from the first of several trip to fill the tub with hot water. Once full, Tara slipped off her sweaty, grimy clothes and dipped foot after foot into the water. Her clothes had been taken to the washed, though Tara wondered if they would even hold up to soaking and scrubbing at this point. But the offer was made and she gladly accepted it. 
+
+The armoire was stocked with simple gowns and robes. She dressed herself in a shapeless one and sat down on the bed. Before she knew it, she had fallen asleep.
+
+A voice woke her up, "I wondered when you would make up. So I decided to see for myself."
+
+She sat up and rubbed her eyes, looking for the source of the voice, resentful that she had been woken up when she could have slept for so much longer. 
+
+She saw a man standing near the window. She was slender, average height, but he held himself in a commanding way. He thinks he's very important, was Tara's first thought.
+
+"Do you always wake up your guests in person like this?"
+
+"Only when they intrigue me. And you intrigue me."
+
+Tara sat up and threw her feet over the side of the bed. "Why would that be?"
+
+"Because I thought I would never see you again."
+
+The man stepped away from the window and Tara recognized him immediately. It felt as if she had been transported back to a very specific time and place. She could remember the sights and sounds and smells of that moment, that final wonderful moment of her previously wonderful, uncomplicated life in the ballroom dancing before her father was arrested.
+
+"You remember me?"
+
+"I do. I have thought of you often. Have you thought of me?"
+
+Tara had not, but felt it would be rude to say as much, so she hedged, "From time to time."
+
+He smiled. "Well, you left an impression that night. It was the talk of the capital for weeks following. I, of course, became the topic of some of that talk."
+
+"How so?"
+
+"By having danced with you then disappeared from the ball."
+
+"And that make you a topic of interset how?"
+
+"Firstly, for having danced with you and secondly for having left right before you were arrested. Oh, could you have heard the speculation. Some rumors had it that I had tipped off the guards to your presence. Others that I was likely to be arrested to."
+
+"Why would you have been arrested?"
+
+"We'll get to that in due time. Needless to say you were on my mind for quite some time."
+
+"I imagine so."
+
+"And now you are here. With the vigilant too."
+
+"Her name is Avalon," Tara said.
+
+"IF you don't mind, I will refer to her as the vigilant in my own house."
+
+Tara was taken aback, "I don't know. I didn't know this was your house. I wouldn't have guessed it."
+
+"Why?"
+
+"You are so..."
+
+"Young?"
+
+"I suppose."
+
+"That is true, I am probably not much older than you."
+
+"And yet this is your house."
+
+"One among many, but this is my favorite, and my most obscure."
+
+Tara looked around at the lavish furnishings, "This is your obscure house?"
+
+"In the sense of being out of sight, off the main thoroughfares, yes. You're quite lucky to have found it and to have entered it alive."
+
+"I suppose I have Sanna to thank for that."
+
+"Sanna? Ah, yes Marin. Silly idea to have so many names. But I know who you mean. Yes, very fortunate indeed." Suddenly, he clapped his hands and said, "In any case, I see that you are up and well. I want you to come down for dinner tonight. Consider yourself to be a guest of honor."
+
+"What will I wear?" 
+
+"Don't bother yourself about that. I will see to it that you are prepared appropriately. Do you promise to make an appearance?"
+
+"Yes, I will."
+
+"Excellent." 
+
+The man turned to leave the room. Before the door closed, Tara remembered to ask about Sanna, "I forogot to ask about Sanna. How is she?"
+
+"She will live. She's suffered more for much less before. See you tonight."
+
+***
+
+As promised, Tara was supplied with all that she required for dinner. She took her time dressing and preparing, resishing in the ease and luxury after the last few years of hard scrabble living. She wished that Maggie could be here with her, but the thought only started to bring up memories of her father so she shut those thoughts away.
+
+A loud bell announced dinner so she left her room to proceed down. The man was waiting at the top of the stairs for her. He held out his arm and she moved to take it. The scene played out like one of the scenes that Ms. Reedy had told her about, had trained her for. All of those lessons and skills rushed back into her mind and body. She stood up straigther and smiled brighter.
+
+"There you are," the man said, greeting her with a charming smile. 
+
+"Yes, I am here," Tara replied. Together they turned to take the stairs, but she paused before stepping down. 
+
+"Is something wrong?" the man asked.
+
+"I realized that I never asked you your name. We danced together so many years ago without a proper introduction."
+
+"Yes, whereas I know you're name all to well."
+
+Tara felt a rush of shame and confusion at this comment. She had not expected this taint of notoriety to follow her. Certainly in prison she was marked in so many ways as a prisoner. There, however, she was just one of the many people whose lives were structured around those massive stone walls, those daily walks across the lake, the bells and shouts and clanks of locks.
+
+Standing in this lavish house, playing out these scenes that she had imagined so many times as a girl, she never thought that she would known as someone associated with scandal. Yet here she was, about to navigate down the stairs with this charming young man who seemed to take a particular interest in her.
+
+She replied to him, "Then I am at a decided disadvantage it seems. In several ways."
+
+The man waved her comment away, "Please, I do not care for the past. I hardly let it bother me. In any case, my name is Leopold and I am pleased to make your acquintance."
+
+"And I yours."
+
+"Now may we please descend for dinner? I am positively famished."
