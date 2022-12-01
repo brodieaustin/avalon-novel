@@ -1975,3 +1975,174 @@ The man waved her comment away, "Please, I do not care for the past. I hardly le
 "And I yours."
 
 "Now may we please descend for dinner? I am positively famished."
+
+<!-- I want to update this section to be more clear about the guests. I think they should be younger, more of a fashionable, decadent set. Perhaps incorproate the artist from avalon first draft There would be a later scene of walking to the cottage near the house where the artist was painting -->
+
+As they came down the stairs, several other guests stood waiting and talking outside the dining room. When Leopold and Tara descended the stairs, they each turned and took in the sight of their host and his new guest. Tara felt their eyes on her, evaluating and sizing her up. She tried not to let the the intensitiy of their interest unsettle her. Instead, she focused on her surroundings and tried to have a serene air about her. 
+
+One by one she was introduced to the guests--some minor official, a magistrate, and a some local landowner and his wife. She shook hands, curtseyed, smiled, and laughed, passing herself off as a charming young lady, not the odd curiosity that her host had collected. She could feel the guests interest wane somewhat as she proved herself to be a an unremarkably charming young woman and not what they were expecting at all. She determined that it was satisfactory to come across as being somewhat bland tonight.
+
+Together all of the guests entered a large dining room with a long table situated in the middle. Lights reflected off of the highly polished flatware and fine crystal glasses. She was led to a seat by Leopold then seated by one of three footmen who stood along the perimeter of the dining room waiting to serve them. The other guests were seated and the service started.
+
+Tara had never seen or eaten such lavish food before in her life. Each course seemed to give way, impossibly, to another course. Soups and meats and desserts. The guests remarked on how hard to obtain some of the cuts of meat and spices were. Leopold frequently demurred when asked how he had circumventing some restriction or another to acquire them.
+
+Throughout the dinner she followed the protocols that she had learned with Ms. Reedy. She feigned interest when it seemed that she should, and disengaged when it was clear the guests were speaking of subjects that didn't include her. As the nominal guest of honor, the guests around her felt obliged to engage in some brief back and forth, which usually amounted to questions about her education or reading, or about the house and grounds. She wasn't inclined to talk much about the former, and didn't know much about the later. They either weren't aware or feigned not knowing that she had only just arrived in the house.
+
+So after a few awkward turns of conversation, the guest would usually shrug and turn back to the table's conversation, satisfied that they had done their duty as guests in their host's house. If nothing else, this would allow each on to say later over nightcaps or a game of cards, "Yes, a perfectly charming young woman. Remarkable give her story" or something to this effect.
+
+Over the course of the service, she had become so lulled into the routine of feigning and disengaging that she didn't hear her one the guests ask their host a rather surprising question, "I heard a little whisper that you have another visitor in the house."
+
+Leopold wiped the corners of his mouth. His eyes briefly darted over to her then addressed the questioner, "Yes, that is the case. My house has become a haven for a vigilant. Thought I think former vigilant would be a more precise term."
+
+The magistrate inquired, "Won't this draw unwanted attention your way?"
+
+"From the king? I am able to keep my affairs well outside of the king's concerns."
+
+Another guest chimed in, "But this...this is an entirely different matter, wouldn't you say?"
+
+Leopold firmly responded, "I would not say. We talking about matters of degree. These are subtle things. Our king, as you all well know, does not grasp the subtle at all."
+
+The landowner's wife snicked, accompanied a few chuckles around the table. The official raised his glass of wine and said, "Then I propose a toast for subtly."
+
+Leopold enthusastically said, "I will drink that." Their glasses clinked and the dinner continued. As the volume of laughter and converation rose again, Tara looked around the dinner table and realized that Avalon was not there. Why was she not a guest of honor. If anything, Tara would have assumed that Avalon would have been more heradled than her. Instead Avalon was nowhere to be seen, even her name was not spoken, per their host's wishes, of course. She did not feel like she could raise these question now, so she filed them away in her mind for later.
+
+###
+
+When she started to doze off in the drawing room after dinner, she announced that she was going to bed. Leopold wished her goodnight and called for a maid to escort her upstairs. When they reached the room, the maid lit the candles in the room and helped Tara change. 
+
+As the maid was leaving, she whispered to the maid, "I woudl like to say good night to my friends?"
+
+"I'm sorry miss, I don't understand. Your friends?"
+
+"Yes, I arrived with two others. I don't know where they are and I would very much like to see them."
+
+The maid tried to wear a confused expression on her face, but Tara could tell somehow that she was evading her question. Before the maid could leave, Tara rushed forward to plead with her, "Please, the past few days have been very trying. One of my friends is ill and the other is wounded. I just want to be sure they are okay."
+
+The maid looked over her shoulder into the hall. "I don't think my master would take kindly to you poking around his house."
+
+"But you know where they are?" The maid hesittated but nodded her head. "And you can show me?"
+
+"I could but I don't want to get in trouble. My mother would not take me back in the house were I to return now."
+
+"It's okay. I understand. I don't want to get you in trouble. I promise. I'll go on my own; I'm used to wandering in the dark." The maid looked at her skeptically, as if so say how could so fine a lady understand such things. "Just point me in the right direction and word of this conversation will never pass my lips. I promise."
+
+The maid shifted uncomfortably. She had a kind face and Tara felt strongly that she would finally give in to telling her where to go. After deliberating she resolved to say, "I can't be sure, but I believe their in the lowest level of the house in some of the empty servants quarters. I graduated to being upstairs a month back. It's so much warmer and cozy up there. There is a back staircase that the we use to go up and down. You should be able to get down there if your quiet enough and hurry back up."
+
+Tara slipped past the maid in the hallway and said, "Thank you. You don't know who much this means to me." She glided down the hallway to the stairs and slowly made her way down. The staircase took her down past the kitchen. Tara had to be careful not to be spotted by the household staff who were assembled there waiting for their master and his guests to finish their evening. 
+
+Only a few candles flickered on the walls in the lower level, a little bit of moonlight shone threw the short windows set near the group. Tara followed a hallway until she reached a row of doors. Most of them were open but the last one was not. She tried to open the door but it seemed to be locked. She knocked as lightly as she could and whispered, "Avalon? Sanna? Are you there?"
+
+No one replied so she repeated the knocking and whispered several more times. Finally she heard a faint voice respond to her on the other side of the door, "Tara? Is that you?"
+
+"Yes, Avalon, are you alright?"
+
+"I am here. I am tired, but I am here. Wherever this is..."
+
+Tara asked, "Can you open the door?"
+
+The door knob turned several times. "The door is locked. I can't open it."
+
+It struck Tara as strange that she was locked in the room. "Do you know where Sanna is?"
+
+"She is here with me. She's asleep though. She seems very ill. Her breathing is very shallow."
+
+"Will she make it?"
+
+"I do not know. Tara, where are we? I haven't seen anyone since we arrived earlier and the healer visited Sanna. After that we were locked in the room and haven't seen anyone since."
+
+"His name is Leopold. He seems to be very important, very powerful. Oddly enough, I have met him before."
+
+"Before now? Where?"
+
+"At the ball in the capital? He danced with me before the soldiers appeared to arrest my father."
+
+"That is odd. And yet here we are."
+
+"Yes, I'm sorry I'm only just now coming to find you. I was swept up in other things."
+
+"No, do not apologize. I am very tired. I need the rest."
+
+"I promise I will return in the morning and we will sort this out."
+
+Avalon replied, "Okay, just be on your guard. Can you promise to do that?"
+
+"Yes, I promise." With her promise given, Tara sneaked back up the stairs and in to her room. Even though fatigue overcame her as soon as she sat on the bed, she spent most of the night restly tossing about, trying to decide what to do about Avalon.
+
+***
+
+The next day, Tara found herself swept up in the flurry activity that made up the household. Over breakfast, Leopold raised the possibility of calling on the artist who was at dinner the night before. Tara must have shown enough of an interest in the artist to warrant Leopold's insistance that they visit his studio later after breakfast. Tara inquired about this studio, surprised that such a remote place would havec such a thing nearby. Leopold waved away the question merely saying, "I let him use an old outbuilding on the property. He holes up in there over a meager little stove to keep warm and paints masterpieces." 
+
+Once breakfast was cleared, they started off towards the studio, as Leopold called it. Tara declined to take a carriage to the studio, preferring to keep the cold mountain air in her lungs. She kept her brisk stride and he managed to keep up with her. 
+
+As they walked, he tried to prepare her tastes for he artist they were about to visit, "Now I must admit that his works may not suit your taste, but I think if it sit with the images and the technique you'll find something very unique that's being offered. I think it is the technique that stands out the most. This artist uses very bold brushwork and layers colors in a most unusual, inventive way. I felt truly lucky when I happened upon this work."
+
+"And how did you discover this talent?" Tara asked.
+
+"Well, despite my life as a recluse here, I do go out into the world from time to time. I met him on one of my walks. He was staying at a nearby town, having traveled to such a remote location so that he could focus on his art. When he first showed me his work, I marvelled at such unique sparks of creativity and inginuity."
+
+"I see, and you are now this artists's patron."
+
+"Yes, in a manner of speaking. I have provided him a space adn several meals a wekk, though he often goes without food whne he is in a creative frenzy. I believe his work interest you greatly."
+
+<!-- everything below this was copied over from avalon and probably needs work -->
+They arrived at the old run down outbuilding where the artist lived and worked while he was under Leopold's protection. They walked up a narrow flight of stairs and entered the artist's studio.
+
+Even in the early afternoon sun, the studio still seemed cramped and small. The earthy smell of pigments hit her nose when they walked in. Tara scanned the room at that various paintins and drawings that here hanging pell-mell on the wall and from the rafters. The artist was working on a large canvas propped against the far wall. He must had stopped in the middle of a brush stroke, because he stood there in front of the painting, tapping his foot impatiently. Then in a flurry he applied several dense layers of paint in the area he was working on.
+
+"We have arrived, and I have a special vistor," Leopold said. 
+
+The artist turned and looked his visitors up and down. "I didn't realize that my door was open to visitors."
+
+"No, well I have brought you a very special visitor."
+
+"Ah excellent, I see you were willing to venture out into the wilds of the mountains to visit my studio."
+
+She replied, "Yes, though it didn't require too much convincing. I am very interseted to see your art."
+
+The artist huffed and turned back to his work, "Very well, show her around like you have shown aroudn the others. Please keep your interruptions to a minimum." She was not sure if she should be offended by the artists impudence or take pleasure in his clear disdain for Leopold. Now that she had met this scurrulous person there was a chance she might actualy patronize him.  
+
+They went around the small space looking at the artists work. It was, indeed, inventive and unusual, but also something about the technique repelled her. Many of the canvases were smothered in dark hues, as if they had been doused in fire. Smears of dark earthtones seemed to erupt out of the voids that suffocated the margins of the paintings. There was something suffocating and oppressive about them.
+
+She studied the imagery better. Human forms were contorted, like a buckets of limbs and skin that someone had thrown together. Many of the figures cried out in agony, faces lifted to the sky, not out of hope, but more like looking for an escape. Figures seemed to pile on each other, tearing at one another. Cities were on fire, villages burned. The few flashes of bright color looked like the glint of sun off of armor and weapons.
+
+Leopold leaned in and whispered, "Remarkable work, don't you think. I find it captures something I didn't even realized needed to be captured."
+
+"It is remarkable, but agonizing as well. Do you relish that feeling, Leopold."
+
+"Relish no, but it speaks to something...true in me."
+
+"I did not realize you were such a devoted seeker of truth."
+
+"It may not be my natural state, but work like this calls me to it."
+
+"I see, may I speak with the artist."
+
+"Certainly, of course."
+
+She walked up beside the artist, who did, in fact stop his painting, as if realizing who she was now that she was up close. He did not seemed concered about hosting Tara in his studio or the possibility of her becoming his patron. "I would like to ask you about your work."
+
+"Yes, what about it?"
+
+"I am curious where you draw inspiration for your images. Do you paint the world as you see it?"
+
+"I am a visionary, not a recorder. I do not have a cloak hanging up in my closet. I leave that to my little sister."
+
+"I see, and what are these visions you see."
+
+"The future. I paint what will be."
+
+"And all of this," Tara said gesturing to the paintings. "All of this is what will be?"
+
+"I believe so, yes. This is the future as I have seen it. Does it disturb you or offend you in some way?"
+
+"Surprises me. And I hope, sincereley hope that you are wrong."
+
+"We shall see. In the mean time, I must finish working on this section of my painting before the light gives out and goes away."
+
+Leopold stepped in to say, "Then we will take our leave. And I will be in touch. Let my people know if you need anything."
+
+"I have let them know that I have no wine to drink, and no one will bring me wine."
+
+Tara replied, "I will have something sent to you from my personal cellar, if that is agreeable."
+
+The artist bowed low, perhaps in mockery, though perhaps in genuine apprecatation, "Then I must count you as one of the true patrons of the arts."
